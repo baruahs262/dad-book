@@ -38,6 +38,7 @@ You were away and there was no one to ask, so I made every decision myself. This
 ### Spelling
 - **British spelling throughout,** kept as a separate set of changes (reviewer "Editor (Spelling)"). Your book is set largely in Britain and Europe, your heroine is Scottish, and a UK publisher would expect British spelling. The draft was mostly American (color, realize, center) with some British habits (towards, enquire, grey). If you query American agents, reject the whole Spelling set in one click.
 - **"Mom" becomes "Mum"** for the Scottish family, in the same set.
+- **Quote marks.** Your file mixed straight ("like this") and curly (“like this”) quotation marks and apostrophes. All of them are now curly, under a fourth reviewer name, **"Editor (Typography)"**, so you can accept them in one click. They are kept separate so they don't bury the real edits.
 
 ### Names
 - Every change is explained in `03_Character_Names.md`, and they are all under the reviewer "Editor (Names)". The leads are unchanged.
@@ -49,11 +50,10 @@ You were away and there was no one to ask, so I made every decision myself. This
 - **"Leave me alone. Will you?"** Your tag-question style is kept in most places.
 
 ### Things I deliberately did not change
-- **Structure.** No chapters were moved, merged or cut, apart from one deleted paragraph that was a garbled duplicate. The structure is for you to decide. See `02_Structure_and_Flow_Plan.md`.
+- **Structure.** No chapters were moved, merged or cut. Two short paragraphs were deleted: a one-line tone note that repeated the dialogue, and a garbled passage whose meaning could not be recovered. Each has a comment offering a replacement. Seventeen paragraphs were split where two different speakers shared one paragraph. The structure is for you to decide. See `02_Structure_and_Flow_Plan.md`.
 - **Plot holes needing new material.** The sedative, the guns, the officer's body, the Schengen flight, Montijo air base and Maxwell's legal authority are all flagged in comments, not rewritten. A line editor shouldn't write new scenes in your name.
 - **Scotland Yard.** Maxwell's employer should probably be Police Scotland or the National Crime Agency. I flagged this rather than changed it, because it affects his whole backstory.
 - **The ending.** Only line fixes. The one exception: the last sentence, "and soon she would accept his love", contradicted her "Yes, us" three lines earlier, so it was trimmed. The comment offers an alternative.
-- **Quote marks.** Your file mixed straight ("like this") and curly (“like this”) quotation marks and apostrophes. All of them are now curly, under a fourth reviewer name, **"Editor (Typography)"**, so you can accept them in one click. They are kept separate so they don't bury the real edits.
 - **Spacing.** Double spaces and non-breaking spaces from your word processor are left alone. They are invisible, and a typesetter removes them automatically.
 - **Formatting.** Chapter headings, fonts and page layout are exactly as you had them. Chapters 1–18 have bold italic date lines with superscript "th", and chapters 19–85 have plain bold date lines. I left that inconsistency alone. Where a date line's number changed, the new "th" is not superscript.
 
@@ -78,9 +78,24 @@ You were away and there was no one to ask, so I made every decision myself. This
 | `book-edited.md` | The accepted text as plain Markdown, matching your `book.md`. |
 | `Redline-Preview.html` | A browser view of every change and comment. Read-only. |
 | `editorial/01`–`07` | The letter and supporting notes. |
+| `editorial/appendix/` | The nine section reader reports and seven style studies the edit was built on. They are working papers, so they are detailed and blunt. |
 
 ---
 
 ## 5. Numbers
 
-{{STATS}}
+| Measure | Count |
+|---|---|
+| Words, original → edited | 82,134 → 78,537 (−4.4%) |
+| Prose paragraphs with at least one change | 1,284 of 1,422 (90%) |
+| Typical (median) share of a paragraph's words changed | 9% |
+| Line-edit insertions / deletions (reviewer "Editor") | 5,238 / 4,944 |
+| Name changes (reviewer "Editor (Names)") | 133 |
+| Spelling changes (reviewer "Editor (Spelling)") | 205 (plus words inside edited phrases) |
+| Quote-mark changes (reviewer "Editor (Typography)") | 401 |
+| Chapter date lines corrected | 51 of 85 |
+| Paragraphs split at a change of speaker | 17 |
+| Margin comments | 382: Continuity 121, Fact 67, Query 66, Suggestion 54, Note 44, Cut 30 |
+
+### The blind test
+To check that the edit doesn't read as a second hand (or as AI), a separate reader was given 15 of your original paragraphs as a sample of your voice. They were then shown 48 edited paragraphs, chosen mostly from the most heavily edited, and asked to flag anything that sounded like someone else. They flagged 13. When I checked each flagged phrase against your original manuscript, nearly all were **your own words**, untouched by the edit: "Every single time…", "He now had a purpose.", "There were no words.", "giving reassurance is key", "His mind had become a mud puddle…". The one genuine giveaway was mechanical. Newly typed words had straight apostrophes sitting next to your curly ones. That is now fixed book-wide by the Typography set. The handful of real grammar slips the reader found were corrected.

@@ -25,6 +25,7 @@ Here is what is in the package:
 | `editorial/05_Continuity_and_Timeline.md` | The corrected timeline for all 85 chapters, and every fact fix. |
 | `editorial/06_House_Style_Sheet.md` | The spelling, punctuation and dialogue rules I applied, for use in your revision. |
 | `editorial/07_Notes_and_Assumptions.md` | Every judgement call I made on your behalf, and why. |
+| `editorial/appendix/` | The detailed reader reports and style studies behind the edit, for reference. |
 
 ---
 
@@ -80,7 +81,7 @@ The manuscript was read in full several times, then edited paragraph by paragrap
 - **Keep your formal dialogue:** "I am", "Let us", "Will you?"
 - **Keep your sentence shapes:** same subject, same opening, same order.
 
-{{EDITSTATS}}
+Nine in ten prose paragraphs carry at least one change, but most changes are small. The typical edited paragraph has about a tenth of its words changed. The book is 4.4% shorter: 82,134 words down to 78,537.
 
 ### Four kinds of red lines
 Word lets you filter changes by reviewer (**Review → Show Markup → Specific People**). I used four reviewer names so you can deal with each kind in one go:
