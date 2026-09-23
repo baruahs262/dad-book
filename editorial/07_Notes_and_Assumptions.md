@@ -10,7 +10,7 @@ You were away and there was no one to ask, so I made every decision myself. This
 2. **Decisions.** From those reports I drew up a binding style sheet, a corrected timeline, a character-name review and a list of fact fixes.
 3. **Line edit.** The book was divided into 24 sections of about 3,500 words. Each was line-edited against the style sheet by an editor who first read all the style reports.
 4. **Second pass.** A different editor reviewed each section with fresh eyes. They reversed changes that drifted from your voice, restored your own words where the first editor had swapped them unnecessarily, caught missed errors and tightened the comments.
-5. **Sweep and test.** A final book-wide pass caught remaining patterns. A blind test then checked that edited sentences can't be told apart from your untouched ones.
+5. **Sweep, blind test and proofread.** A book-wide pass caught remaining patterns. In a blind test, a separate reader who had seen only samples of your untouched writing tried to spot edited sentences (details in section 5). Six proofreaders then cold-read the whole edited text.
 6. **Assembly.** Every change was written into your original Word file as a genuine tracked change, keeping your formatting, fonts and layout. The result was checked two ways: "Reject All" reproduces your original text exactly, and "Accept All" reproduces the edited text exactly.
 
 ---
@@ -53,7 +53,8 @@ You were away and there was no one to ask, so I made every decision myself. This
 - **Plot holes needing new material.** The sedative, the guns, the officer's body, the Schengen flight, Montijo air base and Maxwell's legal authority are all flagged in comments, not rewritten. A line editor shouldn't write new scenes in your name.
 - **Scotland Yard.** Maxwell's employer should probably be Police Scotland or the National Crime Agency. I flagged this rather than changed it, because it affects his whole backstory.
 - **The ending.** Only line fixes. The one exception: the last sentence, "and soon she would accept his love", contradicted her "Yes, us" three lines earlier, so it was trimmed. The comment offers an alternative.
-- **Quote marks and spacing.** Your file mixes straight ("like this") and curly (“like this”) quotation marks, and has some double spaces. A typesetter fixes these automatically, and marking hundreds of them would have buried the real changes. In Word, *Replace* with "AutoFormat as you type" quotes enabled, or a publisher's typesetter, will settle them.
+- **Quote marks.** Your file mixed straight ("like this") and curly (“like this”) quotation marks and apostrophes. All of them are now curly, under a fourth reviewer name, **"Editor (Typography)"**, so you can accept them in one click. They are kept separate so they don't bury the real edits.
+- **Spacing.** Double spaces and non-breaking spaces from your word processor are left alone. They are invisible, and a typesetter removes them automatically.
 - **Formatting.** Chapter headings, fonts and page layout are exactly as you had them. Chapters 1–18 have bold italic date lines with superscript "th", and chapters 19–85 have plain bold date lines. I left that inconsistency alone. Where a date line's number changed, the new "th" is not superscript.
 
 ---
@@ -75,6 +76,7 @@ You were away and there was no one to ask, so I made every decision myself. This
 | `The-Last-Scintilla-EDITED-tracked.docx` | Your original with every change tracked, plus margin comments. **Start here.** |
 | `The-Last-Scintilla-EDITED-clean.docx` | Everything accepted, no comments, for a straight read. |
 | `book-edited.md` | The accepted text as plain Markdown, matching your `book.md`. |
+| `Redline-Preview.html` | A browser view of every change and comment. Read-only. |
 | `editorial/01`–`07` | The letter and supporting notes. |
 
 ---

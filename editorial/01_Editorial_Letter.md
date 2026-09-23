@@ -16,6 +16,8 @@ Here is what is in the package:
 |---|---|
 | `The-Last-Scintilla-EDITED-tracked.docx` | Your manuscript with every change shown as a Word tracked change (red lines), plus margin comments. Accept or reject each one. |
 | `The-Last-Scintilla-EDITED-clean.docx` | The same file with every change accepted, for reading straight through. |
+| `Redline-Preview.html` | A read-only preview of all changes and comments that opens in any web browser, including on a phone. |
+| `book-edited.md` | The edited text as plain Markdown, matching your `book.md`. |
 | `editorial/01_Editorial_Letter.md` | This letter: the verdict, strengths, problems, flow, names, title and next steps. |
 | `editorial/02_Structure_and_Flow_Plan.md` | The revision plan: a chapter-by-chapter map, scenes to add and cut, the opening and ending. |
 | `editorial/03_Character_Names.md` | The reasoning behind every name change, and the names I kept. |
@@ -78,16 +80,17 @@ The manuscript was read in full several times, then edited paragraph by paragrap
 - **Keep your formal dialogue:** "I am", "Let us", "Will you?"
 - **Keep your sentence shapes:** same subject, same opening, same order.
 
-About two-thirds of the paragraphs carry at least one change. The typical edited paragraph has about a tenth of its words changed. The book is about 4–5% shorter.
+{{EDITSTATS}}
 
-### Three kinds of red lines
-Word lets you filter changes by reviewer (**Review → Show Markup → Specific People**). I used three reviewer names so you can deal with each kind in one go:
+### Four kinds of red lines
+Word lets you filter changes by reviewer (**Review → Show Markup → Specific People**). I used four reviewer names so you can deal with each kind in one go:
 
 | Reviewer name | What it covers | Suggested approach |
 |---|---|---|
 | **Editor** | The line edit: grammar, word choice, punctuation, tightening, fact and timeline fixes | Go through these one by one. They are the heart of the edit. |
 | **Editor (Spelling)** | Conversion to British spelling (colour, realise, centre, grey, tyres, Mum) | Accept all at once if you are submitting to UK publishers. Reject all if you are targeting American ones. |
 | **Editor (Names)** | The character name changes (see section 6 below) | Review the list, then accept or reject as a set. |
+| **Editor (Typography)** | Straight quotation marks and apostrophes (" ') turned into curly ones (“ ” ’), so the whole book matches | Accept all at once. |
 
 **Margin comments** (headed *Query*, *Fact*, *Continuity*, *Cut*, *Suggestion* or *Note*) explain the larger changes, ask about passages whose meaning I could not be sure of, and flag problems that need your own rewriting. Please read every comment, even if you reject the change it describes.
 
@@ -112,7 +115,7 @@ The full plan is in `02_Structure_and_Flow_Plan.md`. In order of importance:
 1. **Write the ending on the page.** Dramatise the extraction from the compound. Let Kozlov's men, who are ordered to follow Benedikt and then forgotten, close in at the border. Let Daniel recognise Benedikt, and let Daniel tell his story. Make Sanchez's final choice cost her something. End on the father walking round the bend, echoing the window in Chapter 1.
 2. **Solve your own mystery.** Decide exactly what happened in Girbin in February 2010: what Daniel was carrying, what he saw, who took him, why the police went quiet, and why he was kept alive. Then plant the clues through the book, especially in Part II, so the ending pays off rather than explains.
 3. **Earn the romance.** Benedikt is complicit in her father's disappearance. Give Sanchez one honest scene of reasoning before she forgives him. Give Benedikt a surname, a nationality and a consistent inner life: in his own chapters he cannot pretend not to know what he later confesses.
-4. **Restructure for momentum.** Merge short bridge chapters, from 85 down to about 55–62. Cut the retellings. Put chapters in time order where the current order confuses (for example, Chapter 22 before Chapter 21). Move the Part IV divider, which currently falls in the middle of a gunpoint scene.
+4. **Restructure for momentum.** Merge short bridge chapters, from 85 down to about 60, and give the ending its own Part. Cut the retellings. Put chapters in time order where the current order confuses (for example, Chapter 22 before Chapter 21). Move the Part IV divider, which currently falls in the middle of a gunpoint scene.
 5. **One point of view per scene.** When you need to switch heads, use a scene break.
 6. **Dramatise, don't summarise.** Halve Sanchez's Chapter 50 monologue and let Benedikt react inside it. Show the heist planning with Bradley, which is currently one sentence. Cut the travelogue by about 40%.
 7. **Close the logic gaps** listed in the continuity file: the sedative, the gown, the guns in the field, the officer's body, the Schengen flight, Montijo, Maxwell's authority, the medevac, and the gadgets.
