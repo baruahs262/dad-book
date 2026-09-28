@@ -33,15 +33,15 @@ This is that version. It is a demonstration, not a replacement.
 
 The running header now reads *The Tell*. It used to say *Until I Find You*, an older title still in your file's header.
 
-**Length:** about 81,000 words in 60 chapters, down from 85 chapters. The line-edited version is 78,500 words and your original is 82,100.
+**Length:** about 72,500 words in 60 chapters, down from 85 chapters. The line-edited version is 78,500 words and your original is 82,100. That is lean for a thriller. Section 6 explains why, and where to add back.
 
 | Part | Chapters | Words | What it covers |
 |---|---|---|---|
-| One: Helsingør | 1–6 | 9,900 | The window in 2010. The poker game, the theft and the climb. Zurich. Benedikt's hunt begins. |
-| Two: Ayr, 2012 | 7–13 | 9,100 | John Patterson, the internship, Evan Slater, Bradley's recruitment and training, and the briefing that sets up Part One. |
-| Three: The Chase | 14–26 | 18,700 | The three-way chase from Zurich to Lisbon and Nazaré, the attack on Adriana's house, and Sanchez shot. |
-| Four: The Captive | 27–35 | 12,800 | Nuno's interrogation, the Seixal bunker, the flight to Tallinn, her decision to play his heart, and Maxwell unmasked. |
-| Five: The Ship | 36–48 | 13,100 | DAZZLE: the photograph, the pen, the camera, the medevac, Finch's letter and the Cham statue at Gdynia. |
+| One: Helsingør | 1–6 | 8,900 | The window in 2010. The poker game, the theft and the climb. Zurich. Benedikt's hunt begins. |
+| Two: Ayr, 2012 | 7–13 | 8,300 | John Patterson, the internship, Evan Slater, Bradley's recruitment and training, and the briefing that sets up Part One. |
+| Three: The Chase | 14–26 | 16,000 | The three-way chase from Zurich to Lisbon and Nazaré, the attack on Adriana's house, and Sanchez shot. |
+| Four: The Captive | 27–35 | 11,700 | Nuno's interrogation, the Seixal bunker, the flight to Tallinn, her decision to play his heart, and Maxwell unmasked. |
+| Five: The Ship | 36–48 | 10,300 | DAZZLE: the photograph, the pen, the camera, the medevac, Finch's letter and the Cham statue at Gdynia. |
 | Six: The Border | 49–60 | 17,400 | The letter, Vitebsk, Yuri, the confession, Smolensk, Liozna, the night in Russia, her father's story and the crossing. |
 
 ### The main structural changes
@@ -63,7 +63,11 @@ The running header now reads *The Tell*. It used to say *Until I Find You*, an o
    - The last image is the misted rear window, wiped with her sleeve, and the empty bend in the road.
 
    There is no epilogue and no sequel tease.
-8. **Every loose end is closed.** This covers the dead officer, the wounded henchman, the doctor, Adriana, Stephen's question about Maxwell, Maxwell's authority, the tail Kozlov ordered, and what her father carried.
+
+   She now chooses Benedikt for a stated reason. He holds the route, the one thing that can reach the Russian end, and she won't send him back to the men who were ordered to kill them both. They cross into Belarus past Major Zhuk rather than driving back into Russia. The last look back is into Russia, along the road where the tail turned back.
+8. **The ship has a live threat.** Damian Holm, Benedikt's security man, suspects her. He searches her cabin, and a guard logs her movements. Benedikt quietly shuts it down, which pays off when he confesses in Chapter 57.
+9. **Sanchez shares the plan.** In Chapters 53–55 she sets the terms for Smolensk, chooses the handover point and the time, and asks for the gun.
+10. **Every loose end is closed.** This covers the dead officer, the wounded henchman, the doctor, Adriana, Stephen's question about Maxwell, Maxwell's authority, the tail Kozlov ordered, and what her father carried.
 
 ---
 
@@ -171,7 +175,15 @@ The full reasoning, the calendar and every plant and its payoff are in `09_Story
 3. **Three whole-book readers** read the revised draft for timeline, character consistency and developmental problems. A set of editor-in-chief rulings settled the conflicts between their reports, for example the flight times, the sedative and the safety catch on the Makarov.
 4. **Six fixers**, one per Part, applied those rulings. Six proofreaders then cold-read the book for grammar, British usage, hyphenation and repetition.
 5. **Mechanical checks** ran on every chapter. They banned em dashes, new semicolons, colons in narration, a list of AI-typical words and gestures, American spellings, and conflicts with the bible. Repeated phrases were given book-wide limits, for example "What took you so long?" once and the lightning image once.
-6. **Assembly.** The Word file uses your original manuscript as its template, so fonts, margins and page setup are yours. It passes schema validation.
+6. **Two rounds against cold readers.** An acquisitions reader who had never seen your original read the whole revised book twice. After each read, four editors fixed what the reader found:
+   - continuity slips;
+   - tradecraft that came too easily;
+   - the ship section, cut by a quarter;
+   - the ending's motive;
+   - a layer of stock phrases and thesaurus words.
+
+   Two proofreaders then checked the new edits for damage. A third cold read gives the verdict in Section 6.
+7. **Assembly.** The Word file uses your original manuscript as its template, so fonts, margins and page setup are yours. It passes schema validation.
 
 ---
 
