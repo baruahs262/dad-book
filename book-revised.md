@@ -32,99 +32,97 @@ She stood at the window with her sleeve still over her hand and waited for her f
 
 ### 7:00 PM, Monday 14th April 2014, Helsingør, Denmark
 
-The young woman who had registered at the Øresund Palace as Rita sat at the corner table of the hotel coffee shop, where she could watch the lifts without appearing to, and made her rich Danish coffee last. She had waited four years for this evening, and for the last two months she had rehearsed every minute of it. One February morning four years ago she had stood at a window in Girbin and waited for her father to come back from the bakery, and every step since had led her to this table.
+The young woman who had registered at the Øresund Palace as Rita sat at the corner table of the hotel coffee shop, where she could watch the lifts without appearing to, and made her coffee last. She had waited four years for this evening, and for the last two months she had rehearsed every minute of it. One February morning four years ago she had stood at a window in Girbin and waited for her father to come back from the bakery, and every step since had led her to this table.
 
-Outside the tall windows the mist was coming in off the Sound, and the little town was busier than usual for a cold spring evening. From her table she could see the lights of Kronborg Castle, where Shakespeare had set his *Hamlet*, and beyond them the dark water that divided Denmark from Sweden. The hotel itself was an eighteenth-century summer palace to which somebody had added a modern wing of seven storeys and a casino. Once a year it was the best the town could offer to people who could afford anything.
+Outside the tall windows the mist was coming in off the Sound, and the little town was busier than usual for a cold spring evening. From her table she could see the lights of Kronborg Castle, where Shakespeare had set his *Hamlet*, and beyond them the dark water that divided Denmark from Sweden. The hotel was an eighteenth-century summer palace to which somebody had added a modern wing of seven storeys and a casino.
 
-She was dressed in a black evening gown with long sleeves and a high neck, with a turquoise scarf over her shoulders, and her long brown hair was tied in a knot. By the standards of the Øresund Palace it was a plain gown. It had been chosen for what it hid, and the pockets sewn into the lining of its sleeves held everything she would need before morning. She was anxious but wouldn’t show it, hiding her apprehensions behind the gentle sips of her evening coffee.
+She wore a black evening gown with long sleeves and a high neck, with a turquoise scarf over her shoulders, and her long brown hair was tied in a knot. By the standards of the Øresund Palace it was a plain gown. It had been chosen for what it hid, and the pockets sewn into the lining of its sleeves held everything she would need before morning. She was anxious, and she kept her hands still round the cup.
 
-At a few minutes past seven a limousine swung round on the cobbles outside, and the man she was waiting for stepped out from behind its dark tinted glass. He was over six feet tall and sharply dressed in a cobalt blue Versace suit, and his chiselled face refused to give any expression away as two well-built men walked him past her to the executive bank of lifts. Soon they vanished behind the lift doors.
+At a few minutes past seven a limousine swung round on the cobbles outside, and the man she was waiting for stepped out. He was over six feet tall and wore a cobalt blue Versace suit, and his face gave nothing away as two well-built men walked him past her to the executive lifts.
 
 At this time every year he came to Helsingør to play in the private tournament. It was the only place where she could hope to meet him as a stranger. Everything had been planned, down to the scene she would make at the door of the poker room. Only one thing could not be planned, and that was whether he would stop.
 
-At a quarter to nine she paid for her coffee and headed towards the casino. She took a deep breath, shook her anxieties away and approached the poker room. This side of the casino had a distinct air of richness. Large chandeliers were hanging in the foyer, and their dim golden light gave a spark to the exquisite old paintings on the walls. Two tall, sturdy guards stood at the entrance to the secluded area. With confidence in her stride, she walked towards them.
+At a quarter to nine she paid for her coffee and walked through to the casino. This side of the casino was quieter and richer. Chandeliers hung in the foyer of the poker room, and their dim golden light fell on the old paintings along the walls. Two tall guards stood at the entrance. She walked straight towards them.
 
-“Hej!” one of the guards greeted her in the local Danish way.
+“Hej!” one of the guards said.
 
-She glanced at him with smiling eyes and continued walking. The other guard raised his hand to stop her. “May I see your membership card, please?”
+She smiled at him and kept walking. The other guard raised his hand. “May I see your membership card, please?”
 
-She still carried her infectious smile. She told them she was new to the town and was visiting the casino for the first time. “I have the money,” were her concluding words. The guard politely refused and explained that the room was for members only. From the corner of her eye she saw the man she was waiting for walking towards the doors, and she raised her voice on purpose to get his attention.
+She told them she was new to the town and had never been inside the casino before. “I have the money,” she said. The guard politely explained that the room was for members only. From the corner of her eye she saw the man she was waiting for walking towards the doors, and she raised her voice.
 
-“I want to see the manager. Is this how you treat a lady?” Before the guards could react, she launched her next assault in an even louder voice. “Where is it written that only members are allowed?”
+“I want to see the manager. Is this how you treat a lady?” Before the guards could answer, she went on, louder still. “Where is it written that only members are allowed?”
 
-By now he was next to her. He had changed into a dinner jacket that fitted him perfectly, and the guards stepped aside to let him through the tall doors. As he passed, she gave him a gentle tap on the shoulder. He turned round, and she greeted him with a radiant smile. She looked straight into his eyes and continued, “You seem to be popular. Can you put these miserable souls in their place? They are rude and discriminating.”
+By now he was beside her. He had changed into a dinner jacket, and the guards stepped aside to let him through. As he passed, she tapped him on the shoulder. He turned round, and she looked straight into his eyes. “You seem to be popular. Can you put these miserable souls in their place? They are rude and discriminating.”
 
-He looked at her with interest, and for a little longer than a stranger needed to. Then, in the most casual way, he said, “She is with me,” and led her into the elite poker room.
+He looked at her for a little longer than a stranger needed to. Then he said, “She is with me,” and led her into the poker room.
 
-The room was circular. There was one large mahogany table in the centre with seating for five players, and the dealer sat on one side of it with his back to a dark velvet wall. The room was dimly lit, and Mozart’s *The Marriage of Figaro* was playing softly from somewhere in the walls. At the far right was the bar, with its single malts and some of the most exotic liquors from around the world. The other guests were arriving at leisure and taking their places around the table.
+The room was circular, with one large mahogany table in the centre for five players, and the dealer sat with his back to a dark velvet wall. Mozart’s *The Marriage of Figaro* was playing softly from somewhere in the walls, and at the far side was a bar of single malts and liquors from half the countries of Europe. The other players were arriving at leisure and taking their places round the table.
 
-“I deeply appreciate your kind gesture.” She took the initiative and extended her hand. “My name is Rita.”
+“I deeply appreciate your kind gesture.” She held out her hand. “My name is Rita.”
 
-He gave her hand a gentle grip and introduced himself in a single word. “Benedikt.” Then, as any gentleman would, he continued in a deep voice, “The seats are for members only. Please take mine for tonight’s game.”
+He took her hand and gave his name in a single word. “Benedikt.” Then he said, “The seats are for members only. Please take mine for tonight’s game.”
 
-Rita had been waiting for a moment like this. She turned towards him, stretched up to reach his ear and whispered, “I appreciate the gesture. For tonight, let me be your lady luck.”
+She stretched up to reach his ear and whispered, “For tonight, let me be your lady luck.”
 
-If he was charmed, he did not let it show. “The pleasure is mine,” he said. He waved to the keeper and asked him to arrange a seat for the lady, and the keeper brought an armchair and placed it next to Benedikt’s.
+If he was charmed, he did not let it show. “The pleasure is mine,” he said. He asked the keeper to arrange a seat for the lady, and an armchair was placed next to his.
 
-The game had some rules. Each of the five players brought ten million pounds to the table, and no one could leave until one of them was declared the winner. It was played in sterling, because the money was British, and so were the partners, and Rita knew that not a penny of what sat in front of Benedikt was his own. He had won three of the last four tournaments and was clearly the favourite. He was known for bold moves and for making his opponents shudder with his all-in stakes, and during play he wore a poker face regardless of wins or losses. The clock in the corner chimed nine, and the annual game began.
+Each of the five players had brought ten million pounds to the table, and no one could leave until one of them was declared the winner. It was played in sterling, because the money was British, and so were the partners, and Rita knew that not a penny of what sat in front of Benedikt was his own. He had won three of the last four tournaments. He was known for bold moves and for making his opponents shudder with his all-in stakes, and he played with the same still face whether he won or lost. The clock in the corner chimed nine.
 
-The dealer showed two fresh decks sealed in cellophane and unwrapped them in front of the players. Robinson, who sat to the left of the dealer, did the honour of cutting the first deck. Each player put a couple of white chips into the middle of the table as the ante. Then came the blind betting, which was betting before anyone had seen a card. Robinson opened, and everyone matched him. Only then did the dealer give each player five cards.
+The dealer unwrapped two fresh decks in front of the players, and Robinson, on the dealer’s left, cut the first. Each player put two white chips in the middle as the ante. Robinson opened the blind betting, made before anyone had seen a card, and everyone matched him. Only then did the dealer give each player five cards.
 
-Rita watched the players with great interest as they looked at their cards, hoping to read their minds. None of them gave anything away. No smile, no widening of eyes or a trickle of sweat, not a shade of any slipping hint. She watched Benedikt longest of all, and he gave away less than anyone. Sitting at a high-stakes table for the first time, she understood that impassiveness was the unwritten protocol of the game. However, she kept alive her hope of finding some cue she could use to impress him.
+Rita watched the players look at their cards. None of them gave anything away. She watched Benedikt longest of all, and he gave away less than anyone.
 
-In the second round Ingrid folded at once. Robinson and Alberto stayed in. When Benedikt’s turn came, he pushed forward chips worth a million pounds. Like before, he was inscrutable, and it was hard to know whether he had good cards or was simply bluffing. Holger, who sat beside him, shifted in his chair and folded. Robinson and Alberto matched the million.
+Ingrid folded at once. Robinson and Alberto stayed in. When Benedikt’s turn came, he pushed forward a million pounds. Holger, beside him, shifted in his chair and folded. Robinson and Alberto matched the million.
 
-Rita noted Alberto’s stance. He sat with his legs crossed and was rotating a chip between his fingers. The waitress was making her rounds with the drinks, and she seemed to know her audience well. She brought Benedikt a vodka with two olives on the side, exactly as Rita had been told he would drink it. Then the waitress looked at Rita. “What would you like to have?”
+Rita noted that Alberto sat with his legs crossed, turning a chip between his fingers. The waitress was making her rounds, and she knew her audience. She brought Benedikt a vodka with two olives on the side, exactly as Rita had been told he would drink it. Then she looked at Rita. “What would you like to have?”
 
-Before Rita could answer, Benedikt looked at her. “May I?” And without waiting for her answer he ordered, “Krupnik with vodka for the lady.”
+Before Rita could answer, Benedikt turned to her. “May I?” Without waiting, he ordered, “Krupnik with vodka for the lady.”
 
-“Coming right away,” said the waitress.
+Rita was impressed, but she reminded herself that she was there on a mission and must not be carried away. “I trust your choice,” she said, and smiled at him.
 
-Rita was impressed, but she reminded herself that she was there on a mission and not to be carried away by some foolish infatuation. “I am sure this must be the best, and I trust your choice.” Her eyes flirted as she glanced at him with a mysterious smile.
+“It is a Lithuanian delight. It will suit you well,” Benedikt said, and he did not look away from her. The top floor of the new wing was not far from her reach now.
 
-“It is a Lithuanian delight, and I am sure it will suit you well,” Benedikt said, his gaze never leaving her. She knew that the top floor of the new wing was not far from her reach now.
+Then came the draw. Robinson changed two cards. Alberto changed one and went on turning his chip. Benedikt changed three. After the draw Robinson folded, and Alberto pushed another million into the pot without hesitation.
 
-Then came the draw, when each player could throw away any of the five cards and take new ones from the dealer. Robinson took two cards. Alberto took one, and went on rotating his chip. Benedikt took three. After the draw Robinson folded, and Alberto pushed another million into the pot without any hesitation.
+Rita watched Alberto’s fingers. A man who changed one card was often chasing a straight or a flush, and a man who had missed it might bet boldly to frighten the table. She could not keep quiet any longer. She bent closer to Benedikt’s ear and whispered, “I think he is bluffing.”
 
-Rita kept her eyes on Alberto’s fingers. A man who took a single card was hoping for a straight or a flush, and a man who had missed might bet boldly to frighten the table. She couldn’t resist any more. She bent a little closer to Benedikt’s ear and whispered, “I think he is bluffing.”
+Benedikt hardly reacted. After a brief pause he matched Alberto’s million and raised him two million more. Alberto matched him, and it was time for the showdown. Benedikt laid down a pair of aces with an eight, a nine and a two. Alberto laid his cards out one by one, the six, seven, eight, nine and ten of spades. It was a straight flush. He grinned, showing his yellow teeth, and gathered in the pot.
 
-Benedikt hardly showed any reaction. After a brief pause he matched Alberto’s million and raised him two million more. Alberto did not disappoint the audience. He matched the stake, and it was time for the showdown. Benedikt laid down his cards first. “A pair of aces,” announced the dealer. The eight, nine and two that came with them added nothing. Alberto laid his five cards out one by one, the six, seven, eight, nine and ten of spades, and took the game with a straight flush. He finally grinned, showing his yellow-tinted teeth, and gathered in the pot.
+Rita felt her face grow hot. “I am truly sorry for my foolishness, and I am sorry for your loss.”
 
-Rita was embarrassed by her childish guessing. Though she was uncomfortable, she mustered some courage. “I am truly sorry for my foolishness, and I am sorry for your loss.”
+Benedikt smiled thinly. “Do not be sorry. It was not your fault. And never stop giving your views. I like it when someone puts their mind to work, as I do.”
 
-For the first time that evening Benedikt had a thin smile on his lips. He looked at her and said gently, “Don’t be sorry. It was not your fault.” He continued in a lighter tone, “And never stop giving your views. I like it when someone puts their mind to work, as I do.”
+Rita did not know whether he meant it kindly. She gave him an edgy smile and felt less sure of herself than she had all evening.
 
-Rita was puzzled. She couldn’t work out whether it was a compliment or a sarcastic remark. She answered with an edgy smile, and all the confidence she had gained that evening seemed to fade away.
+The dealer announced a fifteen-minute break. “I have to make an important call. I will be back in ten minutes,” Benedikt said, and left her at the table.
 
-The dealer announced a fifteen-minute break before the next hand. “I have to make an important call. I will be back in ten minutes,” Benedikt said, and left her alone at the table.
+Alberto came over at once. “Never seen Benedikt with a lady before. Guess he never needed one.” He chuckled at his own joke.
 
-Seeing Benedikt go, Alberto made his advance. “Never seen Benedikt with a lady before. Guess he never needed one.” He was pleased with himself and chuckled.
+“The game is still on,” she said, “and who would know better than a professional like you that it takes one good hand to change the tide?” She held out her hand. “My name is Rita.”
 
-With a smile on her face, she responded, “The game is still on, and who would know better than a professional like you that it takes one good hand to change the tide?” She stretched out her hand. “My name is Rita.”
+Alberto took it awkwardly, introduced himself and moved away.
 
-Alberto took her hand with some awkwardness, introduced himself and swiftly moved away.
+Benedikt came back in less than ten minutes. Everyone put in an ante, the dealer opened a new pair of decks, and this time Benedikt cut. Alberto opened the blind betting, and everyone matched him before the cards were dealt.
 
-As promised, Benedikt came back in less than ten minutes. The players exchanged some pleasantries and settled down for the next hand. Everyone put in an ante, the dealer shuffled a new pair of decks, and this time Benedikt cut. Alberto opened the blind betting, and everyone matched him before the cards were dealt.
+*Looks like it is Alberto’s day today*, Rita thought. When the players looked at their cards, she watched Alberto. This time he had not crossed his legs, though he took a chip and began turning it between his fingers as before. Then, after he had seen his cards, he crossed his left leg over his right.
 
-*Looks like it is Alberto’s day today*, Rita thought, watching the proceedings with dwindling hope. When the players looked at their cards, she watched Alberto. Unlike last time, he had not crossed his legs, but he still took a chip and started rotating it between his fingers. Then, after he had seen his cards, he shifted his posture, and Rita got the cue she was looking for.
+Two things were different. In the last hand he had sat with his legs crossed from the beginning, and this time he crossed them only after seeing his cards. And this time it was the left leg over the right. Alberto raised by two million pounds. Benedikt matched it without a word. Holger shook his head and folded, and Robinson followed. Ingrid picked up her cards for a second look, thought for a while and matched the two million. Rita was sure Ingrid had good cards.
 
-She had noticed two things that were different from before. First, he crossed his legs only after seeing his cards, whereas in the last hand he had sat with them crossed from the beginning. Also, this time he crossed his left leg over his right. Alberto raised the stake by two million pounds. Benedikt matched it without a word, and Holger, already shaking his head, called it quits. Robinson followed suit. Ingrid picked up her cards for a second look, pondered for a while and matched the two million. Rita knew Ingrid had good cards.
-
-In the draw Ingrid took one card. Alberto took two, and Benedikt took one. After the draw Alberto pushed another large stack of chips into the pot, and his left leg stayed over his right. Rita couldn’t resist, and she gave in to her intuition. Besides, she was sure Benedikt wanted her to speak her mind.
+In the draw Ingrid changed one card, Alberto two and Benedikt one. After the draw Alberto pushed another large stack of chips into the pot, and his left leg stayed over his right. Rita was sure Benedikt wanted her to speak her mind.
 
 “I am sure it is a half bluff,” she whispered. “He has the cards, but not high in the order.”
 
-Benedikt said nothing, but what he did brought her both a sense of achievement and a surge of nervousness. He went all in. She couldn’t believe her eyes. Ingrid didn’t dare to go any further and folded, saving her remaining chips for another night. The battle was again between Alberto and Benedikt. Alberto matched him, forcing Benedikt to show his cards. Everyone held their breath, for it was the largest pot of the night.
+Benedikt said nothing. He went all in. Ingrid folded, saving her remaining chips for another night. Alberto matched him, and the whole table leaned in, for it was the largest pot of the night.
 
-Benedikt turned over his cards as slowly as he could, the five of hearts, the six and seven of clubs, the eight of diamonds and the nine of hearts. It was a straight! All attention shifted to Alberto. Could he pull the game back? He had gone pale, and his face twitched. All he had were three kings, a queen and a four, and three kings were not enough to take the game away from Benedikt.
+Benedikt turned over his cards slowly, the five of hearts, the six and seven of clubs, the eight of diamonds and the nine of hearts. It was a straight. Alberto had gone pale. He laid down three kings, a queen and a four, and three kings were not enough.
 
-With the other players well down and Alberto badly weakened, Benedikt was heading towards a clear win. Like always, he gave nothing away. All evening Rita had watched him more closely than anyone else at the table, through a lost hand and a won one, and she had not found a single cue on him. The dealer called the game off for the night, to be reconvened the next day. Benedikt left his seat, passed a faint smile to his fellow players and walked out of the room with his prized possession, Rita.
+With Alberto badly weakened and the others well down, Benedikt was heading for a clear win. All evening Rita had watched him more closely than anyone else at the table, through a lost hand and a won one, and she had not found a single tell on him. The dealer closed the game for the night, to be reconvened the next day. Benedikt nodded to the other players and walked out of the room with Rita at his side.
 
-“It has been a long night. May I offer you a drink at my place?” There was a clear hint of curiosity in his manner as he made the suggestion.
+“It has been a long night. May I offer you a drink at my place?” He asked it lightly, but he was watching her face.
 
-Rita could hardly believe her ears. It was like the pieces of a puzzle coming together. Keeping her excitement under control, she answered with a distinct smile, “I would love to.”
+She kept her voice steady. “I would love to.”
 
-As soon as they left the room, the two escorts appeared again and guided them to the executive lifts. They rode to the seventh floor, the top of the new wing. The lift was rising fast, and so were her emotions. After four years of meticulous planning and a painful, arduous wait, she was about to take the first step. She was disconcerted, and she was trying hard to hide it from Benedikt.
+As soon as they left the room, the two escorts appeared again and walked them to the executive lifts. They rode to the seventh floor, the top of the new wing, and she watched the numbers climb above the door. After four years of planning and waiting she was about to take the first step, and she was nervous and trying hard to hide it from him.
 
 When the doors opened, she saw a corridor with a camera at every corner and men in dark suits standing along its walls, and every one of them turned to look at her.
 
@@ -132,27 +130,27 @@ When the doors opened, she saw a corridor with a camera at every corner and men 
 
 ### 11:00 PM, Monday 14th April 2014, Helsingør, Denmark
 
-Rita walked down the corridor on Benedikt’s arm with the cameras watching every step. The men in dark suits stood along the walls and said nothing, and the aura of the place made her visibly nervous. A trickle of sweat appeared on her temple, and she felt the thumping of her heart against her chest. Benedikt glanced at her, and she knew her face had turned pale. He gently squeezed her hand and said in a hushed voice, “Do not be alarmed. They are for our safety.” She smiled sheepishly. If he took her nerves for a stranger’s shyness, so much the better.
+Rita walked down the corridor on Benedikt’s arm with the cameras watching every step. The men in dark suits stood along the walls and said nothing, and she was nervous. Benedikt glanced at her, and she knew her face had turned pale. He squeezed her hand and said quietly, “Do not be alarmed. They are for our safety.” She smiled sheepishly. If he took her nerves for a stranger’s shyness, so much the better.
 
-The corridor led to a large living room. The place was grand, with tall ceilings and wide windows, and it was separated into two sections by a few raised stairs. The seating area was vast, with sofas, sculptures and paintings, all meticulously arranged. From the door she could also see the bedroom, which ran from the living room to the furthest corner of the floor. Benedikt called one of his men and whispered something she could not hear. The man sprang into action, and soon all the guards were gone behind the closed doors.
+The corridor led to a large living room. The place was grand, with tall ceilings and wide windows, and it was separated into two sections by a few raised stairs. The seating area was vast, with sofas, sculptures and paintings, all meticulously arranged. From the door she could also see the bedroom, which ran from the living room to the furthest corner of the floor. Benedikt called one of his men and whispered something she could not hear. The man nodded, and soon all the guards were gone behind the closed doors.
 
-There she was in Benedikt’s suite, alone with him. For two months she had pictured this room from the corner room two floors below it, and now she was standing in it. Her brooding was broken by his voice. “Do you have a preference, or shall I get you one of my favourites?”
+There she was in Benedikt’s suite, alone with him. For two months she had pictured this room from the corner room two floors below it, and now she was standing in it. His voice broke into her thoughts. “Do you have a preference, or shall I get you one of my favourites?”
 
-She smiled and answered with equal vigour, “Surprise me.”
+She smiled. “Surprise me.”
 
-He went to the bar and made the drink with amazing skill. “Here is your Between the Sheets. I hope you like it.” The name itself had its meaning written all over it. He settled down beside her with his vodka. They looked at each other for a long while, and before she could think, he leaned forward and kissed her. The kiss grew passionate, and he lifted her off her feet and carried her towards the bedroom. She was taken by surprise. She had known something like this would happen, but not at this pace. She had a plan, and she couldn’t afford to ruin it in the first ten minutes. With a lot of reluctance she pushed him away, first gently, then with some force. He looked both surprised and disappointed, but like a gentleman he let her go.
+He went to the bar and made the drink with practised hands. “Here is your Between the Sheets. I hope you like it.” He settled down beside her with his vodka. They looked at each other for a long while, and before she could think, he leaned forward and kissed her. The kiss grew passionate, and he lifted her off her feet and carried her towards the bedroom. She had known something like this would happen, but not at this pace. She had a plan, and she couldn’t afford to ruin it in the first ten minutes. She pushed him away, first gently, then with some force. He looked disappointed, but like a gentleman he let her go.
 
-She said with a smile, “I am sorry. I didn’t mean to be rude, but I need to use the bathroom and, if possible, change.”
+She smiled. “I am sorry. I didn’t mean to be rude, but I need to use the bathroom and, if possible, change.”
 
-His disappointment soon turned into a harmless chuckle, and he led her to the bathroom. He winked as he pointed to the wardrobe. “Here is my robe. The best I can offer.”
+He chuckled and led her to the bathroom. He winked as he pointed to the wardrobe. “Here is my robe. The best I can offer.”
 
-She locked the bathroom door and carefully took off her gown. Everything she needed for the night was stitched into the lining of its long sleeves. First she took a small white tablet from the lining and swallowed it with water from the tap. Bradley had given it to her with the balm. It would not stop the balm altogether, he had told her, but it would give her a clear head for four hours. Then she felt along the left sleeve until she found a small tube, no bigger than a lip balm, and took it out. It held a sedative in the form of a balm. She smoothed a thin layer of it on the tips of her fingers, taking care to keep them away from her own lips, and put the tube back where it came from. With extreme caution she stashed her gown in the cabinet below the sink, slipped into the robe and came back to him in a jiffy.
+She locked the bathroom door and took off her gown. Everything she needed for the night was stitched into the lining of its long sleeves, and there was not much of it. The suit was a dancer’s, thin enough to roll up no bigger than a pair of stockings, the gloves were finer still, and the glasscutter was no longer than a pen. She had worn the gown with all of it inside for a week of evenings in Ayr, until she could sit, dance and reach for a glass without anything showing, and she had taken out every piece and put it back in the dark until she could do it without thinking. First she took a small white tablet from the lining and swallowed it with water from the tap. Bradley had given it to her with the balm. It would not stop the balm altogether, he had told her, but it would give her a clear head for four hours. Then she felt along the left sleeve until she found a small tube, no bigger than a lip balm, and took it out. It held a sedative in the form of a balm. She smoothed a thin layer of it on the tips of her fingers, taking care to keep them away from her own lips, and put the tube back where it came from. She put her gown in the cabinet below the sink, slipped into the robe and went back to him.
 
-He was still working on his vodka and was looking out of the window towards the Sound. He was taken by surprise when she slipped her arm around his neck from behind. She turned his face towards her and traced the line of his mouth with her fingertips, slowly, as a lover would, and she did it twice to be sure. Then she let him pull her into his lap.
+He was still working on his vodka and was looking out of the window towards the Sound. He started when she slipped her arm around his neck from behind. She turned his face towards her and traced the line of his mouth with her fingertips, slowly, as a lover would, and she did it twice to be sure. Then she let him pull her into his lap.
 
 What followed she had told herself would be part of the work, and for most of the night she managed to believe it. She kept count of the time in her head. She kept her hands away from her own face. And she listened, all the while, for the moment when his breathing would change.
 
-It was a little past one in the morning when she moved out from under his arm. Benedikt was sound asleep. The balm had done its work. She moved discreetly, making no noise, and tiptoed to the bathroom. Hidden in the gown were a thin body-hugging suit and a pair of fine gloves. She slipped into the suit, put on the gloves so that she would leave no fingerprints behind, and went back for the briefcase lying by the bedside.
+It was a little past one in the morning when she moved out from under his arm. Benedikt was sound asleep. The balm had done its work. She tiptoed to the bathroom. Hidden in the gown were a thin body-hugging suit and a pair of fine gloves. She slipped into the suit, put on the gloves and went back for the briefcase lying by the bedside.
 
 It was a black leather case with two brass latches, and each latch was locked by three small wheels of numbers. She did not need a light for this. She knelt on the carpet with the case on her knees and put the tip of her gloved thumb on the first wheel of the right-hand latch. Slowly she turned it, one number at a time, feeling for the faint give when the right number came round, the way Bradley had made her do it a hundred times. When she felt it, she moved on to the next wheel. The first latch took her nearly six minutes. Twice Benedikt stirred in his sleep, and twice she froze with her thumb on the wheel until he was still again. The second latch went faster. It was eleven minutes in all before the briefcase sprang open with a gentle click.
 
@@ -160,53 +158,53 @@ There it was, the small telescopic cylinder. She drew it out and slid a sheet of
 
 There was one more job left before she could leave the room. She found Benedikt’s wallet in the bedside drawer and took all the cash, hoping the missing money would mislead any investigation. She gave one final look at Benedikt and went back to the bathroom.
 
-Besides the suit, the gloves and the balm, the gown held a small battery-operated glasscutter. She tore open the lining and took it out. She closed the doors to muffle any noise and set to work on the bathroom window. In about fifteen minutes the pane was out, and she laid it carefully by the Jacuzzi. She left the gown where it was, under the sink. There was no room for it where she was going.
+Besides the suit, the gloves and the balm, the gown held a small battery-operated glasscutter. She tore open the lining and took it out. She closed the doors to muffle any noise and set to work on the bathroom window, scoring the glass the way she had practised on a dozen old panes from a builder’s yard. In about fifteen minutes the pane was out, and she laid it carefully by the Jacuzzi. She left the gown where it was, under the sink. There was no room for it where she was going.
 
-It was twenty past two and pitch dark outside when she climbed through the empty frame. Not a soul was visible. Her own room was on the fifth floor, in the same corner of the wing, and earlier that day she had fixed a rope with an anchor on the floor above it, hidden behind the wall beside the drainpipe that ran from the roof to the ground. She had to climb down one floor to reach it. The new wing had been built to match the old palace, with ledges and ornaments along every floor, and that worked to her advantage. Using the ledges, she went down with careful steps. Once she was close to the drainpipe, she moved sideways and rested her foot with extreme caution on one of its rings. With utmost care she went down, one step at a time.
+It was twenty past two and pitch dark outside when she climbed through the empty frame. Not a soul was visible. Her own room was on the fifth floor, in the same corner of the wing, and earlier that day she had fixed a rope with an anchor on the floor above it, hidden behind the wall beside the drainpipe that ran from the roof to the ground. She had to climb down one floor to reach it. The new wing had been built to match the old palace, with ledges and ornaments along every floor, and that worked to her advantage. Using the ledges, she went down with careful steps. Once she was close to the drainpipe, she moved sideways and rested her foot on one of its rings, and she went down one step at a time.
 
-“Creak, creak!” A loud cry broke the silence of the night. She lost her left foothold and slipped, and only just caught hold of an iron hinge on the wall. Her heart leapt into her mouth. For a few seconds she had no clue what had happened. Then she heard the flutter of wings moving away, and she understood that she had disturbed some birds asleep on the ledge. She was hanging from the hinge and in desperate need of a foothold. The guest in the room below switched on his light and peered out. To her advantage, the flutter of the birds erased whatever suspicion he might have had, and he went back to bed. In the light that seeped out of his window she saw a narrow edge of stone joining the drainpipe to the wall, to the right of her dangling foot. She knew the hinge would not hold her for long. She swung her feet, got a grip on the drainpipe and shifted her weight to it. On the sixth floor she found the rope she had tied earlier in the day and slid down it to her own window. Once inside, she pulled the rope in and closed the window behind her.
+A loud, harsh cry broke the silence of the night. She lost her left foothold and slipped, and only just caught hold of an iron hinge on the wall. For a few seconds she did not know what had happened. Then she heard the flutter of wings moving away, and she understood that she had disturbed some birds asleep on the ledge. She was hanging from the hinge with nothing under her feet. The guest in the room below switched on his light and peered out. The birds were still fluttering, and after a moment he went back to bed. In the light that seeped out of his window she saw a narrow edge of stone joining the drainpipe to the wall, to the right of her dangling foot. She knew the hinge would not hold her for long. She swung her feet, got a grip on the drainpipe and shifted her weight to it. On the sixth floor she found the rope she had tied earlier in the day and slid down it to her own window. Once inside, she pulled the rope in and closed the window behind her.
 
-“The Do Not Disturb sign worked like a charm,” she mumbled when she found the room untouched by the housekeepers. She was perspiring from head to toe. She would have loved a shower, but she refrained, as the sedative would soon start to fade.
+“The Do Not Disturb sign worked like a charm,” she mumbled when she found the room untouched by the housekeepers. She was wet with sweat from head to toe. She would have loved a shower, but there was no time, as the sedative would soon start to wear off.
 
-She changed into jeans and a hooded pullover, picked up the bag she had packed the night before and left the room. The lobby was almost empty. To her benefit, the receptionist was stealing an early morning nap in the office behind the desk. She found a lone bellman, offered him a hundred kroner and asked him to get her a taxi. She didn’t have to wait long. It was a little after half past two when she left the Øresund Palace. After that she changed taxis twice and doubled back, and it was a long while before she walked into Helsingør station and bought a ticket for the first train to Copenhagen.
+She changed into jeans and a hooded pullover, picked up the bag she had packed the night before and left the room. The lobby was almost empty. The receptionist was stealing a nap in the office behind the desk. She found a lone bellman, offered him a hundred kroner and asked him to get her a taxi. She didn’t have to wait long. It was a little after half past two when she left the Øresund Palace. After that she changed taxis twice and doubled back, and it was a long while before she walked into Helsingør station and bought a ticket for the first train to Copenhagen.
 
 At Copenhagen Central Station it was a little before six. She found the public telephone on the platform and dialled a number. After a few rings, a man with a gruff voice snapped, “Who is it?”
 
 She told him who it was and continued in a low voice, “I have the map. Can you ring Adriana and tell her I’ll be there in the next few days? I am calling from a pay booth. I will ring you back in fifteen minutes.”
 
-After fifteen minutes she rang back. “She will be waiting for you,” the man said. “Good luck.” She thanked him and breathed a sigh of relief.
+After fifteen minutes she rang back. “She will be waiting for you,” the man said. “Good luck.” She thanked him and put the receiver down.
 
-At the ticket counter she bought a ticket to Basel and paid for it in cash. It was the first train south that morning. She took a corner seat with a clear view of the door and, with the bag on her lap and her arms around it, closed her eyes for the first time in a day.
+At the ticket counter she bought a ticket to Basel and paid for it in cash. It was the first train south that morning. She took a corner seat with a clear view of the door and, with the bag on her lap and her arms around it, closed her eyes.
 
 * * *
 
 *The hotel yard, 2:20 AM*
 
-Four hours earlier, at twenty past two, a man in a dark windcheater standing in the open yard behind the Øresund Palace saw a shadow come out of a window at the top of the new wing. He had been waiting for it since midnight, bravely fighting the biting cold, and his dark clothes blended with the night so well that he was almost invisible unless someone came within a few yards of him. Some time earlier a soft tinkling of glass had brought his senses to alert. It was hard to notice unless someone was expecting it, and he was expecting it. He knew the layout of the top floor, and he knew which window she would come out of. What he had not known was when, or whether she would be caught before she ever reached it. When the birds flew up and she hung from the hinge, he took a step forward and stopped, not sure what he could do. Then she found her footing again. He was relieved to see her reach her own window unscathed, and he did not move until it closed behind her. He had waited in that yard for more than two hours, and she had no idea he was there.
+Four hours earlier, at twenty past two, a man in a dark windcheater standing in the open yard behind the Øresund Palace saw a shadow come out of a window at the top of the new wing. He had been waiting for it since midnight in the cold, and in his dark clothes he could not be seen unless someone came within a few yards of him. Some time earlier a soft tinkling of glass had brought his senses to alert. He knew the layout of the top floor, and he knew which window she would come out of. What he had not known was when, or whether she would be caught before she ever reached it. When the birds flew up and she hung from the hinge, he took a step forward and stopped, not sure what he could do. Then she found her footing again. He was relieved to see her reach her own window, and he did not move until it closed behind her. Then he walked round to the front of the hotel, to a place in the shadows from which he could see the taxi rank.
 
 ## Chapter 4
 
 ### 5:00 AM, Tuesday 15th April 2014, Helsingør, Denmark
 
-Benedikt woke with a dreadful headache. The room was in darkness, and it took him a while to find his bearings. He stretched out his hand for Rita and found only crumpled sheets. His head was throbbing so hard that he thought it would burst. He fumbled for the bedside lamp, and when the light came on he had to shield his eyes from the glare. With reluctant steps he headed to the bathroom. The splash of cold water pierced like shrapnel but gave him the much-needed relief. He took two aspirins from the cabinet with water from the tap.
+Benedikt woke with a dreadful headache. The room was in darkness, and it took him a while to find his bearings. He stretched out his hand for Rita and found only crumpled sheets. He fumbled for the bedside lamp, and when the light came on he had to shield his eyes from the glare. He went to the bathroom and splashed cold water on his face. He took two aspirins from the cabinet with water from the tap.
 
-As he turned towards the towel rack, he saw the pane of glass. It had been cut out of the window and placed neatly by the Jacuzzi, and the cold air of the Sound was coming in through the empty frame. For a moment there were too many things for him to understand. Then the briefcase crossed his mind. He dashed to the bedroom and, to his relief, found it exactly where he had left it the night before. He entered the combination on both latches, and the case opened. Everything appeared untouched. He took out the cylinder and pulled the paper out. It was the original, without any trace of tampering.
+As he turned towards the towel rack, he saw the pane of glass. It had been cut out of the window and placed neatly by the Jacuzzi, and the cold air of the Sound was coming in through the empty frame. For a moment he could not understand what he was looking at. Then he thought of the briefcase. He dashed to the bedroom and, to his relief, found it exactly where he had left it the night before. He entered the combination on both latches, and the case opened. Everything appeared untouched. He took out the cylinder and pulled the paper out. It was the original, without any trace of tampering.
 
-He went back to the bathroom to look at the window again, and this time he saw a fold of black silk showing under the door of the cabinet below the sink. He opened it and pulled out her gown. The long sleeves had been torn open along the lining, and inside them were small pockets, stitched by hand and empty now. He stood holding it for a long while. This was not the dress of a girl who had come for his wallet. Somebody had made it for a purpose, and she had worn it to his table knowing exactly what it carried.
+He went back to the bathroom to look at the window again, and this time he saw a fold of black silk showing under the door of the cabinet below the sink. He opened it and pulled out her gown. The long sleeves had been torn open along the lining, and inside them were small pockets, stitched by hand and empty now. He stood holding it for a long while. It was not the dress of a girl who had come for his wallet. Somebody had made it for a purpose, and she had worn it to his table knowing exactly what it carried.
 
-Without wasting any further time, he called Damian, the head of his personal security. Damian arrived within minutes and stood waiting for instructions.
+He called Damian, the head of his personal security. Damian arrived within minutes.
 
 “Have you seen the girl?”
 
 Damian looked bewildered. “Not that I’m aware of, Chief. Let me check.” He pulled out his radio and started talking to someone.
 
-Benedikt was furious. How could a girl make such a mockery of him? Despite the guards, the cameras and the restricted floor, she had walked into his suite, done what she had come to do and vanished without a trace. His headache was creeping back, adding fuel to his anger.
+Benedikt was furious. How could a girl make such a mockery of him? Despite the guards, the cameras and the restricted floor, she had walked into his suite, done what she had come to do and vanished without a trace. His headache was creeping back.
 
 “How could she disappear with a dozen of you around? What do I pay you all for? I want to know where she is within the next thirty minutes. Damian, I want you to find her and bring her to me. If you fail, do not bother to come back. Is that clear?”
 
-Damian was sweating profusely. He nodded and dashed out of the room.
+Damian nodded and hurried out of the room.
 
-Benedikt looked round the suite, the living room, the dressing room and the drawers. Nothing was missing except the cash from his wallet, about five hundred kroner and a few hundred dollars. He was baffled. “What sane girl would climb out of a seventh-floor window and past my men for five hundred kroner?” he mumbled.
+Benedikt looked round the suite, the living room, the dressing room and the drawers. Nothing was missing except the cash from his wallet, about five hundred kroner and a few hundred dollars. “What sane girl would climb out of a seventh-floor window and past my men for five hundred kroner?” he mumbled.
 
 He asked Damian to get a doctor, as he wanted to know whether he had been drugged. The doctor came soon, took a blood sample and checked his pulse, and then asked about the bitter taste in his mouth. “If it was a drug, I would say it was applied to your lips,” the doctor said. “We will know when the blood comes back.” He advised him to repeat the aspirin every four hours and left.
 
@@ -214,7 +212,7 @@ Benedikt remembered her fingers on his mouth, and he said nothing.
 
 After the doctor left, Damian reported what little he had. The only person who had seen the girl since she disappeared was the bellman. According to him, she had left at about half past two in a taxi, and Damian’s men were looking for the driver.
 
-Benedikt was a tad calmer than before. He sat in the reclining chair with his fingers pressed to his forehead and spoke in a gravelly voice. “She took my money. I have a hunch she did not come for the money. She wants us to believe she did, but the glass gives her away. A thief who wanted my wallet would have walked out of the door with it. She cut that window because she needed a way out that nobody would see, and nobody goes to that trouble for five hundred kroner. This girl is smart. Let us not underestimate her.”
+Benedikt was calmer now. He sat in the reclining chair with his fingers pressed to his forehead. “She took my money. I have a hunch she did not come for the money. She wants us to believe she did, but the glass gives her away. A thief who wanted my wallet would have walked out of the door with it. She cut that window because she needed a way out that nobody would see, and nobody goes to that trouble for five hundred kroner. This girl is smart. Let us not underestimate her.”
 
 He took a few sips of water and continued, “Here is what you need to do. First, find out everything about her. When she checked in, when she was last here, whom she met, the room she stayed in. I want every detail. Next, I want to talk to the taxi driver. I do not care where he is. And I want all the camera recordings from the corridor, the lobby and the poker room. Report back in twenty minutes. Will you?”
 
@@ -228,29 +226,29 @@ In twenty minutes Damian was back in the living room. Benedikt was pacing across
 
 “Rita checked in three days ago,” Damian said. “She gave an address in Copenhagen, but there’s no such street. She paid cash, and she said she was Danish, so nobody asked for her passport. She was always alone. No friends, no visitors. She asked for a corner room two floors below this one, for the view, she said. And she’s been here twice before in the last few weeks, always in the same room.”
 
-The slight benefit of the doubt Benedikt had given her was gone. It was a well-thought-out intrusion, planned with extreme care and executed with brilliance. What he could not fathom was the reason for it.
+Whatever doubt Benedikt had kept in her favour was gone. She had planned it for weeks. What he could not fathom was why.
 
 There was a knock, and Russ, Damian’s second, came in with the fingerprint report. Her prints were everywhere in her room, on the glass in the poker room and on the bar in the suite, and they matched no record the police could find. Wherever she came from, she had never been in trouble there.
 
-Damian played the video. Benedikt wanted to see the poker room first, around the time he had stepped out for his call. There was nothing out of the ordinary. He saw Alberto approach her and saw the way she rebuffed him, and he wore a wry smile. Though he was irritated with the chaos around him, he admired the girl for her nerve.
+Damian played the video. Benedikt wanted to see the poker room first, around the time he had stepped out for his call. There was nothing out of the ordinary. He saw Alberto approach her and saw the way she sent him off, and he smiled wryly. He admired the girl for her nerve.
 
-Benedikt went on with the lobby recording. He fast-forwarded, rewound and zoomed in, and for a long time he saw nothing of significance. Then he saw himself walking to the executive lifts, and then he saw her. The picture was grainy, as she sat at the far edge of the frame, but he could make out a girl in a black gown at a corner table of the coffee shop. He played it again in slow motion. As he walked past her, her eyes went to the lifts and stayed there. She had been waiting for him all that time while pretending to drink her coffee. It was evident she was there for a purpose. She was there for him.
+Benedikt went on with the lobby recording. He fast-forwarded, rewound and zoomed in, and for a long time he saw nothing of significance. Then he saw himself walking to the executive lifts, and then he saw her. The picture was grainy, as she sat at the far edge of the frame, but he could make out a girl in a black gown at a corner table of the coffee shop. He played it again in slow motion. As he walked past her, her eyes went to the lifts and stayed there. She had been waiting for him all that time while pretending to drink her coffee. She had been there for him.
 
-He couldn’t believe how he had fallen into her trap, in such a foolish and naïve manner. His mind was crowded with competing thoughts.
+He could not believe how easily he had walked into her trap.
 
 Within the hour Damian had the rest from his men. Cruz, the first driver, had taken her to a hotel on the harbour front, and a second had taken her from there to the bus stop on Stengade. She had spoken to neither of them. There was nothing open on Stengade at that hour, only the bus to the station.
 
-Benedikt smiled, as if he was enjoying the game of cat and mouse. “Go to the station and find out where she went. There cannot have been many travellers at that hour. Now find that girl for me.”
+“Go to the station and find out where she went. There cannot have been many travellers at that hour. Now find that girl for me.”
 
 * * *
 
 *11:00 AM*
 
-The name came from the passport office. Benedikt had a contact there who owed him more than one favour, and a little after eight he had sent him the clearest still from the coffee-shop camera. Danes were never asked for their passports at hotels, which was why she had called herself a Dane. But anyone who flew into Copenhagen from Britain had their passport scanned on arrival, and his contact had spent the morning comparing her face with the passengers from every British flight of the past week.
+The name came from the passport office. Benedikt had a contact there who owed him a favour, the largest he had, and a little after eight he had sent him the clearest still from the coffee-shop camera. Danes were never asked for their passports at hotels, which was why she had called herself a Dane. But anyone who flew into Copenhagen from Britain had their passport scanned on arrival. There was no machine that could match a grainy still to a scan, so his contact took two men off the night shift, kept them past the end of it and set them to go through the passport photographs of every young woman on the British flights, one face at a time, starting with the most recent. It was not a thing he could do twice, and he told Benedikt so.
 
 At eleven his phone rang. The man read out what he had found. “Sanchez Roberti. British, twenty years old. An address in Ayr, in Scotland. She came in on a flight from Glasgow on Saturday.”
 
-Benedikt wrote it down and thanked him. He looked at the name for a long time. The name of the town caught his eye too, and he read it twice.
+Benedikt wrote it down and thanked him. They had found her in three hours only because she had flown in on Saturday, and the Saturday flights were the first they tried. He looked at the name for a long time. The name of the town caught his eye too, and he read it twice.
 
 Damian came in with the rest. The bus had taken her to Helsingør station, and the first train had taken her to Copenhagen. There the station cameras showed her at the ticket counter a little after six, paying in cash for a ticket to Basel. Right behind her in the queue was a man in a dark windcheater, with his hood up, who bought a ticket to Basel on the same train. He had paid by card, and the name on the card was T. Harlow. The cameras never caught his face.
 
@@ -258,53 +256,53 @@ Damian came in with the rest. The bus had taken her to Helsingør station, and t
 
 “Put the Basel team on it,” Benedikt said. “I want the station, the hotels and the taxis. If she stays in Basel for a day, we will find her.”
 
-He knew that sooner or later he had to inform his seniors, and it was never going to be an easy conversation. He would have to explain how a girl had walked into his suite and out of the window, and worse, that he did not know why. No one would believe the story of the stolen money either. With some hesitation, he dialled the number and was on the phone for a good fifteen minutes. He told them about a thief called Rita, who had drugged him and taken his cash and might have seen the map. He told them his men were on her trail. He did not give them her real name. He could not have said why, and he did not stop to ask himself. At the end of the call he had until the end of the week.
+Sooner or later he had to inform his seniors. He would have to explain how a girl had walked into his suite and out of the window, and worse, that he did not know why. No one would believe the story of the stolen money either. He dialled the number and was on the phone for a good fifteen minutes. He told them about a thief called Rita, who had drugged him and taken his cash and might have seen the map. He told them his men were on her trail. He did not give them her real name. He could not have said why, and he did not stop to ask himself. At the end of the call he had until the end of the week.
 
-Though he was worn out, he felt some relief. Despite the pain and the whole nightmarish morning, he could not stop admiring the girl. It was not good for him by any measure, and he knew it. The girl who had put his entire morning in disarray was not troubling him for her misdeed, but for her disappearance. Deep inside, he knew he wanted to find her, more for himself than for anything else.
+He put the phone down and sat for a while with the name in front of him. Despite the pain and the whole wretched morning, he could not stop admiring the girl, and he knew it was not good for him. He wanted to find her, and he knew it was more for himself than for his seniors. He wanted to see her again.
 
 ## Chapter 5
 
 ### 4:00 AM, Wednesday 16th April 2014, Zurich, Switzerland
 
-The train came to a sudden stop, and the jolt woke Sanchez from a restless sleep. She had been dreaming again. No matter how much she wanted to avoid the painful nightmares, they kept coming back with renewed vengeance. The lone bulb in the coach was casting a dim yellow light, and outside it was still dark. She rubbed her eyes and read the dial of her wristwatch. It was a few minutes after four. The window beside her had misted over. She stretched her sleeve over her hand and wiped a patch of the glass clear, and through it she saw the first lights of Zurich sliding slowly past. At twenty past four the train blew a long whistle and came to a full stop with a shrill cranking noise.
+The train came to a sudden stop, and the jolt woke Sanchez from a restless sleep. She had been dreaming of the window in Girbin again. The lone bulb in the coach was casting a dim yellow light, and outside it was still dark. She rubbed her eyes and read the dial of her wristwatch. It was a few minutes after four. The window beside her had misted over. She stretched her sleeve over her hand and wiped a patch of the glass clear, and through it she saw the first lights of Zurich sliding slowly past. At twenty past four the train came to a full stop with a long screech of brakes.
 
 She had been travelling for the best part of a day. After Copenhagen there had been a day of changes, and then a night train south from Hamburg. Her ticket was for Basel, and she had stayed in her seat when the train stopped there.
 
-Grabbing her bag, she stepped down on to the platform and headed towards the north exit. As she walked she looked around for any suspicious character but found none. There were a few people walking towards the exit, and they all appeared to be early commuters. There was nothing for her to worry about, and she walked on.
+Grabbing her bag, she stepped down on to the platform and headed towards the north exit. As she walked she looked around her. There were a few people walking towards the exit, and they all appeared to be early commuters.
 
-A BMW 5 Series was waiting at the exit with its engine running. Without wasting any time she slipped into the front passenger seat, dropped her bag at her feet and looked at the man behind the wheel with a tired smile. “Mission accomplished.”
+A BMW 5 Series was waiting at the exit with its engine running. She slipped into the front passenger seat, dropped her bag at her feet and looked at the man behind the wheel with a tired smile. “Mission accomplished.”
 
 He smiled back, but only for a moment. He pulled away from the kerb and drove out into the empty streets. Sanchez leaned her head against the seat and told him, in a few short sentences, that she had the pictures, that nobody had stopped her and that she had hardly slept in two nights. He listened without interrupting, which was not like him. His eyes kept going to the mirror.
 
 “I have a hunch we are being followed,” he said at last.
 
-She turned in her seat and looked back. A grey Peugeot with a taxi sign on its roof was following them at a steady distance. At that hour Zurich was empty, and in an empty city a car that stayed behind them was hard to miss. Though it appeared harmless, there was something about it that made her uneasy.
+She turned in her seat and looked back. A grey Peugeot with a taxi sign on its roof was following them at a steady distance. At that hour Zurich was empty, and in an empty city a car that stayed behind them was hard to miss. 
 
 “Lose it,” she said. “You told me you could drive, brother. Now is the time to prove it.”
 
-He drove along random streets, turning left and right without any pattern, partly to lose the Peugeot and partly to find out whether it really was following them. After a few turns there was no doubt. It never disappeared for long, no matter which way they went. He kept a close eye on the mirror and handled the car with great care, thinking of ways to get away.
+He drove along random streets, turning left and right without any pattern, partly to lose the Peugeot and partly to find out whether it really was following them. After a few turns there was no doubt. It never disappeared for long, no matter which way they went. 
 
-Sanchez was silent, but her mind was racing. Could this be one of Benedikt’s men? If it was, she could not understand why they would follow her so discreetly. Benedikt was powerful enough to stop the car in the street and do what he pleased. Or was it someone she did not know about at all? She went over her escape from the hotel in her mind. She had changed taxis twice and doubled back, and she had checked behind her at every step. No one except her brother knew where she was going after the hotel. Not even Bradley knew that. Now somebody was behind them in a grey taxi at four in the morning.
+Sanchez was silent. Could this be one of Benedikt’s men? If it was, she could not understand why they would follow her so discreetly. Benedikt was powerful enough to stop the car in the street and do what he pleased. Or was it someone she did not know about at all? She went over her escape from the hotel in her mind. She had changed taxis twice and doubled back, and she had checked behind her at every step. No one except her brother knew where she was going after the hotel. Not even Bradley knew that. Now somebody was behind them in a grey taxi at four in the morning.
 
-She was jolted out of her brooding when Stephen braked hard. The car swung sharply into the car park of a block of flats and stopped in the shadow of the building. Through the rear window she saw the Peugeot go past the entrance without slowing down.
+Stephen braked hard. The car swung sharply into the car park of a block of flats and stopped in the shadow of the building. Through the rear window she saw the Peugeot go past the entrance without slowing down.
 
 * * *
 
-Stephen waited a good twenty minutes before he stepped out of the car. He told Sanchez to stay where she was, buttoned his coat against the cold wind and pushed his hands into his pockets. He kept to the side of the car park and walked swiftly towards the street. At the corner of the building he put his back to the wall and looked out, first to one side and then to the other, without showing more of himself than he had to.
+Stephen waited a good twenty minutes before he stepped out of the car. He told Sanchez to stay where she was, buttoned his coat against the cold wind and pushed his hands into his pockets. He kept to the side of the car park and walked quickly towards the street. At the corner of the building he put his back to the wall and looked out, first to one side and then to the other, without showing more of himself than he had to.
 
 The street was deserted. The streetlights were still on, and the only light besides them came from an all-night petrol station across the road, where a customer or two sat at the window of its little café with their coffee. There was no sign of the Peugeot. He stepped out on to the pavement, walked to the corner and looked both ways, then walked back and checked the other end. There was nothing out of the ordinary. Satisfied, he headed back to the car.
 
 His sister was craning her neck to look for him when he opened the door. “Looks like our little trick worked,” he said, rubbing his hands to warm them. “The Peugeot went right past us.”
 
-“Good riddance.” She dropped her shoulders as if she had put down a heavy load, gave him a frail smile and closed her eyes.
+“Good riddance.” She gave him a tired smile and closed her eyes.
 
-“We need to get out of Zurich,” Stephen said. His voice was edgy, and his mind was still on the Peugeot. “Let’s get back to the flat and rest, and we’ll leave first thing tomorrow. Sooner or later we’ve got to reach Portugal.”
+“We need to get out of Zurich,” Stephen said. His mind was still on the Peugeot. “Let’s get back to the flat and rest, and we’ll leave first thing tomorrow. Sooner or later we’ve got to reach Portugal.”
 
-She didn’t answer. Before he had finished speaking she was in a deep sleep. He looked at her and saw that her face was at peace for the first time that morning. He smiled and got back to business. He eased the car out of the car park, watched the street with vigilant eyes and turned towards the motorway.
+She didn’t answer. Before he had finished speaking she was in a deep sleep. He looked at her for a moment. Then he eased the car out of the car park, watched the street both ways and turned towards the motorway.
 
 They had a long drive ahead of them. The flat was above Walenstadt, on the Walensee, the better part of an hour and a half from the city, and he wanted to get there without any more trouble. Out on the A3 there was hardly any traffic. He kept to a hundred and twenty and watched the mirror more than the road. Now and then a pair of headlights came up behind him, stayed a while and fell back, and each time he told himself it meant nothing.
 
-As he drove, his mind went over everything that had happened since Sanchez had first told him her plan. What she had done in Helsingør was only the first small step towards their goal, and he knew it. It had not been easy for him to let her go into the devil’s world alone, but they had no other choice. He was glad to have her back, and he was also aware of the peril that lay ahead.
+As he drove, his mind went over everything that had happened since Sanchez had first told him her plan. What she had done in Helsingør was only the first step, and he knew it. It had not been easy for him to let her go into that hotel alone, but they had had no other choice. He was glad to have her back.
 
 By the time they reached the Walensee the sky was turning grey, and the mountains were rising black out of the water on the far side of the lake. It was a sight that on any other morning would have made him stop the car. Instead he turned off at Walenstadt and drove up the narrow lane to the flat, past the blue sign that said *Sackgasse*. He parked in front of the house and switched off the engine, and for a while he sat in the silence with his sleeping sister beside him.
 
@@ -314,43 +312,41 @@ Down at the foot of the lane a car slowed on the main road, as if its driver wer
 
 ### 11:00 PM, Wednesday 16th April 2014, Helsingør, Denmark
 
-Benedikt was flabbergasted. A day earlier he had thought he had her cornered, and now that belief was fading fast. Despite his standing in the region, his team had no clue where she was. The reports from Basel had come in, and they were disappointing. There was no trace of her anywhere. His men had checked the station cameras, questioned the taxi drivers and gone through every hotel register in the city, and Sanchez Roberti was, simply put, missing. When he started the search he had assumed it would take a few hours. It was two days now, and all he had was a handful of scattered clues. His seniors were pressing him, and with every passing hour his fear of becoming a mockery amongst his peers was taking a clearer shape.
+A day earlier Benedikt had thought he had her cornered. Now the reports from Basel had come in, and there was no trace of her anywhere. His men had checked the station cameras, questioned the taxi drivers and gone through every hotel register in the city, and Sanchez Roberti was nowhere. When he started the search he had assumed it would take a few hours. It was two days now. His seniors were pressing him, and with every hour he was closer to becoming a joke amongst his peers.
 
 He went through the file his team had put together and found nothing missing from it. The only thing that had worked so far was his contact at the passport office. Because of him, Benedikt knew her name, and he knew that she had lived in Ayr, a small town on the west coast of Scotland, for the past two years. People he trusted there had searched her flat that afternoon. It was empty. The landlord rarely saw her. She paid her rent on time and kept the place clean, and no neighbour knew her. There was no friend, no photograph and not a single letter. She had lived like someone who was expecting to be searched.
 
 And there was Ayr itself. Of all the towns in Britain she could have come from, she had come from the one where TransPacific had its head office, and where the men he answered to sat. He did not believe in coincidences of that size.
 
-His mind was spinning. The way she had built her life was a shade beyond a professional’s. The quiet years, the plan to get to him, the execution and the vanishing were all disturbing signs. He had been outclassed. If his own men could show even a dash of what she had shown, he would stand at a different level in his world. It was absurd, but there was also a sense of loss that bothered him, as if something of his own had gone. He was scared to admit it, but deep in his heart he knew he was drawn to her, and he could not forget her eyes.
+The way she had built her life was beyond most professionals he knew. He had been outclassed. If his own men had shown half of what she had shown, he would not be sitting here. It was absurd, but he missed her, and he could not forget her eyes.
 
-He shook his head to clear the untimely reverie and mumbled, “It has to be that map.”
+He shook his head and mumbled, “It has to be that map.”
 
-It was a coded map showing the pathways of a dangerous business, and very few people had ever seen it. At first he had been indifferent, as he assumed that even if she had seen the map, she could do nothing with it. Now that belief was slowly giving way to deep trepidation. Too many rich and powerful people were involved, and too much was at stake. “No one can touch it. No one can do anything about it,” he said to himself, and no matter how firm he wanted to sound, his voice was frail and unsure.
+It was a coded map showing the pathways of a dangerous business, and very few people had ever seen it. At first he had assumed that even if she had seen the map, she could do nothing with it. Now he was less sure. Too many rich and powerful people were involved, and too much was at stake. “No one can touch it. No one can do anything about it,” he said to himself, and his voice did not sound firm even to him.
 
-Then he turned his attention to Trevor. He had a vague notion that she and Trevor had something to do with each other. Trevor was another mystery. His team had found nothing about him beyond a name on a card and a man in a dark windcheater with his hood up. It led Benedikt to believe that Trevor was not his real name. What puzzled him more was that if Trevor and the girl were together, only her identity had been exposed. Perhaps they were not together at all. Perhaps Trevor was following her, as Benedikt was. He could not find a reason strong enough for that, and he put the thought aside.
+Then he turned to Trevor, who was another mystery. His team had found nothing about him beyond a name on a card and a man in a dark windcheater with his hood up. Benedikt did not believe Trevor was his real name. What puzzled him more was that if Trevor and the girl were together, only her identity had been exposed. Perhaps they were not together at all. Perhaps Trevor was following her, as Benedikt was. He could not find a reason strong enough for that, and he put the thought aside.
 
-As his mind went through these quandaries, one thing he was certain of was that she had been on the train to Basel and had not got off at Basel. As the facts unfolded, he was convinced that he was up against a seasoned professional, and he would have to treat her like one and not like the naïve girl he had first taken her for. His mind had become a mud puddle, and the more he stirred, the muddier it became. Deep in his heart he knew that to get to her, he had to think like her.
+One thing he was certain of was that she had been on the train to Basel and had not got off at Basel. He would have to treat her as a professional and not as the naïve girl he had first taken her for. To get to her, he had to think like her.
 
 He went back to the beginning and tried to separate the facts from his assumptions. Her ticket would have carried her through Hamburg and then south on the night train, which stopped at Freiburg, at Basel Badischer Bahnhof on the German side of the city and at Basel’s main station, and then went on to Zurich. His men had watched the cameras at the main station, because that was where a ticket to Basel should end. She had known that too.
 
 “She will not buy a ticket to the place she is going,” he mumbled, and bit the end of his pencil. “She buys Basel, so we look in Basel. So she gets off before it, or she stays on after it.”
 
-He wrote three names on a sheet of paper and called Damian to his room. Damian appeared in a flash and stood waiting.
-
-Benedikt was pacing the living room with his hands behind his back and his eyes on the floor. He knew Damian was there but did not look up. The silence went on so long that Damian began to perspire. It was a long two minutes before Benedikt spoke.
+He wrote three names on a sheet of paper and called Damian to his room. Benedikt was pacing the living room with his hands behind his back, and it was a long two minutes before he spoke.
 
 “It is clear from the findings so far that she is not in Basel. I am positive she got off somewhere else, and I have given it a lot of thought.” He handed Damian the sheet. “Freiburg, Basel Badischer Bahnhof or Zurich. She is in one of these three places, or she was this morning. I want the station cameras from all three, from the moment that train came in. Put your best men on each, and I want them to report back every thirty minutes. As soon as you learn anything, tell me. I would like to be there myself. Any questions?”
 
-“No, Chief.” Damian swiftly left the room.
+“No, Chief.” Damian left the room.
 
-After Damian had gone, Benedikt had one more job left for the night. He took out his personal phone and called Oskar Brandt in Copenhagen. Oskar had once been an analyst with the Danish security service, and now he worked privately for a few people who valued his silence. He picked up on the first ring.
+After Damian had gone, Benedikt took out his personal phone and called Oskar Brandt in Copenhagen. Oskar had once been an analyst with the Danish security service, and now he worked privately for a few people who valued his silence. He picked up on the first ring.
 
-Benedikt spoke in a low voice. “Listen, I am calling you because I trust you. I have a job for you, and you must do it with absolute discretion. No one is to know, not my men and not the people I work for. Is that clear?”
+Benedikt spoke in a low voice. “Listen, I am calling you because I trust you. I have a job for you, and you must do it with absolute discretion. No one is to know, not my men and not the people I work for.”
 
-Oskar said that it was.
+Oskar said that he understood.
 
 “I am sending you the details of a girl named Sanchez Roberti, and of a man who calls himself Trevor Harlow, though I doubt that is his real name. I want to know whether either of them has any link with TransPacific, in any form or shape. When you find anything, call me on this number and no other.”
 
-Oskar agreed and rang off. Benedikt lay down on the sofa with the light still on, but his mind was restless. If the answer was yes, the girl had not come at him from outside at all, and the danger was closer to home than any of his seniors imagined.
+Oskar agreed and rang off. Benedikt lay down on the sofa with the light still on. If the answer was yes, the girl had not come at him from outside at all, and the danger was closer to home than any of his seniors imagined.
 
 # PART TWO: AYR, 2012
 ## Chapter 7
@@ -358,46 +354,46 @@ Oskar agreed and rang off. Benedikt lay down on the sofa with the light still on
 
 Sanchez sat cross-legged on her mattress with her father’s notebook open on her knees, as she had done on so many mornings since she came to Ayr.
 
-John Patterson was the one name in her father’s notebook the police had never asked about. Mr MacCallum, the sergeant at Girvan who had led the search, had stopped answering the family’s calls by the end of that first summer. When they confronted him, he had appeared callous and given no convincing answers. Nobody else had ever come to the house with a question.
+John Patterson was the one name in her father’s notebook the police had never asked about. Mr MacCallum, the sergeant at Maybole who had led the search, had stopped answering the family’s calls by the end of that first summer. When they went to see him, he gave them no answers worth the name. Nobody else had ever come to the house with a question.
 
-The flat was a sixteen-by-twelve-foot studio with an attached bathroom and a small kitchen area, and the room had just enough space to fit the mattress. It was no more than a refuge for her, a temporary home until she could devise a well-thought-out plan to find him.
+The flat was a sixteen-by-twelve-foot studio with an attached bathroom and a small kitchen area, and the room had just enough space to fit the mattress. It was a refuge for her until she could work out a plan to find him.
 
 She had come to Ayr in November, a few weeks after her eighteenth birthday, to stay with Aunt Nina, her father’s widowed sister. Aunt Nina made dresses in a narrow house in Newton-on-Ayr and never asked her why she had really come. Sanchez had started at Ayr College in January, and by February her evening jobs paid for a place of her own. Sanchez was her mother’s maiden name, given to her in the old Scottish way. Her father, whose grandfather had come to Ayrshire from Barga, used to joke that she had inherited the whole of the Mediterranean in two words.
 
-Mum still rang from Girbin every Sunday evening, and every Sunday she asked, in the careful voice she had used since the day Sanchez left, when she was coming home. Mum had never wanted her to go to Ayr. Stephen, who had given up his place at Glasgow to work at a garage in Girvan and keep the house going, never asked at all.
+Mum still rang from Girbin every Sunday evening, and every Sunday she asked, in the careful voice she had used since the day Sanchez left, when she was coming home. Mum had never wanted her to go to Ayr. Stephen, who had given up his place at Glasgow to work at a garage in Maybole and keep the house going, never asked at all.
 
-It was a beautiful Friday morning. The spring had arrived early, and people were out on the streets enjoying the mild weather, taking a break from the dreadful winter they had witnessed not too long ago. She had a day off from college, and with nothing to do she had pulled the notebook out of the cupboard once again. It was the same work diary she had taken from her father’s office bag in the autumn after he disappeared. It was full of addresses, times and initials, with a bundle of Ayr receipts folded into the back cover. It was not that she had not gone through it before, but she kept revisiting it in the hope of finding one clue that could help her find John.
+It was a mild Friday morning. The spring had arrived early, and people were out on the streets after a long, hard winter. She had a day off from college, and with nothing to do she had pulled the notebook out of the cupboard once again. It was the same work diary she had taken from her father’s office bag in the autumn after he disappeared. It was full of addresses, times and initials, with a bundle of Ayr receipts folded into the back cover. She had been through it many times, but she kept going back to it in the hope of finding one thing that could lead her to John.
 
-And then she was on the page that had the map of Ayr. It was a street map with odd scrawls made in pencil in a haphazard pattern. Over time it had discoloured, giving it a faded greyish look. She had seen it many times before, and every time it appeared more puzzling than before. The TP scribbled within brackets next to John’s name was always a mystery to her. So was a short word that appeared twice in the last pages, *pkg*, squeezed in amongst times and initials she could not place. She had tried decrypting them many times but never succeeded. Today was no different. She kept staring at the page for a while, and when she couldn’t conclude anything meaningful, frustrated, she put the notebook away.
+And then she was on the page that had the map of Ayr. It was a street map with odd scrawls made in pencil in a haphazard pattern. Over time it had faded to grey. The TP scribbled within brackets next to John’s name was always a mystery to her. So was a short word that appeared twice in the last pages, *pkg*, squeezed in amongst times and initials she could not place. She had never been able to make sense of them, and today was no different. After a while she put the notebook away.
 
-The time was a little over eleven in the morning. She opened the window and put her head out to feel the gentle breeze. There was something in the air, an unexpected freshness that convinced her to leave the confinement of her room. The Low Green had always been her favourite destination, a wide stretch of grass along the seafront. From there the whole of the Firth of Clyde opened up in front of her, with the peaks of Arran across the water on a clear day, and it was a place where she had succeeded in breaking away from the shackles of her gloominess.
+The time was a little over eleven in the morning. She opened the window and put her head out to feel the gentle breeze. The air was fresh, and she wanted to be out of the room. The Low Green had always been her favourite destination, a wide stretch of grass along the seafront. From there the whole of the Firth of Clyde opened up in front of her, with the peaks of Arran across the water on a clear day, and it was the one place where her low moods had ever lifted.
 
-She boarded the bus into town, took a window seat and put her earphones on with Adele’s “Set Fire to the Rain” playing loud. She was in a trance, floating in her own world, when the signage on a building along the Prestwick road almost made her jump from her seat. The building had TransPacific written on it, but what caught her attention was the letters TP carved like a logo, shining distinctly in the morning sun. She hurriedly got off at the next stop and traced her way back. It was a wild guess, but her instinct suggested some connection between the TP in the notebook and TransPacific.
+She boarded the bus into town, took a window seat and put her earphones on with Adele’s “Set Fire to the Rain” playing loud. She was lost in the music when the sign on a building along the Prestwick road almost made her jump from her seat. The building had TransPacific written on it, but what caught her attention was the letters TP carved like a logo, shining in the morning sun. She got off at the next stop and traced her way back. It was a wild guess, but her instinct suggested some connection between the TP in the notebook and TransPacific.
 
-The building was four storeys of glass, and the architecture suggested a modern design. With some hesitation, she stepped into the lobby, and the place blew her away. It was nothing less than what she had seen in films. A water fountain was positioned in the centre of an atrium that rose three floors to a glass roof. An array of modern paintings graciously covered the walls. At a distance she could see a lift guarded by biometric access and an elegantly designed reception desk. The place also had sturdy, serious-looking security guards, discreetly monitoring the area with prying eyes. The whole setup was intimidating, making her nervous and fidgety.
+The building was four storeys of glass. With some hesitation, she stepped into the lobby. A water fountain was positioned in the centre of an atrium that rose three floors to a glass roof. Modern paintings covered the walls. Further in she could see a lift with a fingerprint reader and a long reception desk, and security guards watching the doors. It made her nervous.
 
-She mustered some courage and approached the receptionist. “How can I help you?” the receptionist asked with a warm smile.
+She went up to the receptionist. “How can I help you?” the receptionist asked with a warm smile.
 
 In a low voice, she enquired if she could meet John Patterson.
 
 “Do you know which department he works for?”
 
-She had no clue how to respond and shook her head. She was perspiring. Her face looked pale, as if she had been caught pilfering.
+She shook her head. She felt her face go pale, as if she had been caught stealing.
 
-The receptionist smiled, mostly to comfort her, and continued, “Let me see,” and got busy on her computer. After a few minutes she looked back at her, still carrying the same smile, and said that there were four John Pattersons, and unless she had some more details she wouldn’t be able to help.
+The receptionist smiled to put her at ease. “Let me see.” After a few minutes at her computer she looked up and said that there were four John Pattersons, and unless she had some more details she wouldn’t be able to help.
 
-Sanchez had mixed reactions. The company had four Johns, but it hardly meant anything. John Patterson was a common name. Besides, even if all four of them were called out, there was no way she could have recognised the one she was looking for. Going on a quizzing spree with them was never an option anyway. She politely thanked the receptionist and promised to come back with more specifics.
+The company had four Johns, but it hardly meant anything. John Patterson was a common name. Besides, even if all four of them were called out, there was no way she could have recognised the one she was looking for. Questioning them one by one was never an option anyway. She thanked the receptionist and promised to come back with more specifics.
 
-Despondent, she traced her way towards the exit. She had almost left the building when a large kiosk by the guest waiting area caught her attention. A few visitors were playing with it. Out of curiosity she walked towards it and tapped on the large interactive display. The screen came to life with various zones providing information about the company, its business and credo. She was randomly playing with the infographics when a section called “Student Placements” caught her attention. She tapped the area with interest. The screen described TransPacific’s part-time placements for college and university students, afternoons only, to be worked alongside their studies. There was an email address at the bottom of the display and instructions on how to apply. She took a quick note of it.
+She turned towards the exit. She had almost left the building when a large kiosk by the guest waiting area caught her attention. A few visitors were playing with it. Out of curiosity she tapped on the screen, and it came to life with pages about the company and its business. She was idly tapping through them when a section called “Student Placements” caught her eye. The screen described TransPacific’s part-time placements for college and university students, afternoons only, to be worked alongside their studies. There was an email address at the bottom of the display and instructions on how to apply. She took a quick note of it.
 
-She stood in the lobby for a while, with the fountain murmuring behind her and the guards watching the doors. She had a strong hunch that the man she was looking for was somewhere in this building, or in one of the lorries that carried its name. The only way in that she could see was written on that screen.
+She stood in the lobby for a while, with the fountain murmuring behind her and the guards watching the doors. She had a hunch that the man she was looking for was somewhere in this building, or in one of the lorries that carried its name. The only way in that she could see was written on that screen.
 
 ## Chapter 8
 ### Monday 16th April 2012, Ayr, Scotland
 
 Sanchez was at the TransPacific reception twenty minutes early on the first afternoon of her placement, in the same dress trousers and white shirt she had worn to the interview. The fountain was murmuring in the atrium, and the guards were watching the doors, as they had on the morning she had first walked in a month ago. This time she had a pass with her name on it.
 
-It had all begun with a letter. On the evening she found the kiosk, she had sat at her computer writing and rewriting until late into the night. She was extremely good at English, and during her school days she used to write stories and poetry. But writing poetry was never a do-or-die situation, and finding words to secure a job she badly wanted was overwhelming. Once satisfied with her work, she read it aloud to make sure it sounded right.
+It had all begun with a letter. On the evening she found the kiosk, she had sat at her computer writing and rewriting until late into the night. She was good at English, and at school she had written stories and poetry, but no poem had ever mattered as much as this letter. When she was satisfied with it, she read it aloud to make sure it sounded right.
 
 “Dear Madam/Sir,
 
@@ -411,28 +407,28 @@ Before she pressed send, she sat for a long time over the name at the bottom of 
 
 The reply came a week later from June Wield, Recruitment Coordinator. On Monday 26th March she sat across a table from David Buchanan, a kind man in his late thirties in a plaid jacket, and Amanda Pearl from human resources, and answered their hardest question, about a furious customer and a lost parcel, so calmly that she knew before she left the room that the job was hers. The offer came the following Monday, the 2nd of April. It was a part-time placement in customer service, afternoons only, to be worked alongside her classes at the college, and it would begin in two weeks once the Disclosure Scotland check came back clear.
 
-She had no clue how to react to the news. At first she was numb, and then a sudden surge of emotions overtook her. She cried, she laughed, and she screamed. It was a huge milestone, and she dearly hoped all the answers she had been looking for all these years were hidden somewhere in TransPacific.
+At first she was numb, and then she cried and laughed at once, alone in her studio. She hoped all the answers she had been looking for all these years were hidden somewhere in TransPacific.
 
-She was assigned to the customer service department, reporting to David Buchanan. He was one of the nicest people she met at TransPacific. He was kind, gave her a lot of space and helped her learn the business, and she developed an instant liking for him. The first few days were tough. She was overwhelmed by the size and scale of the work, but David’s support helped her immensely to overcome her apprehensions.
+She was assigned to the customer service department, reporting to David Buchanan. He was one of the nicest people she met at TransPacific. He gave her space and helped her learn the business, and she liked him at once. The first few days were tough, as the size of the place overwhelmed her, but David helped her through them.
 
-She was on the customer service floor with no job assigned. The only instruction she received was to help the call agents whenever they needed her. Most of the time she was running between agents to pass information or generating some arbitrary reports. While working for a large company was exciting, she made sure not to drift away from her goal of finding John Patterson.
+She was on the customer service floor with no job assigned. The only instruction she received was to help the call agents whenever they needed her. Most of the time she was running between agents with messages or printing reports nobody read. She did not let it distract her from John Patterson.
 
-It took two weeks before she was assigned a desktop computer, something she had been eagerly waiting for. That evening she decided to stay late at the office to begin her research.
+It took two weeks before she was given a desktop computer of her own. That evening she decided to stay late at the office to begin her research.
 
-At six o’clock the day shift left. The night shift people were slowly coming in, and the floor was sparsely filled. She looked around and found no one paying any attention to her. With extreme caution, she opened the global address list on her computer and searched for John Patterson. As the receptionist had said, she found four people with the same name. She looked through the details of each one of them to see if she could draw any meaningful insights.
+At six o’clock the day shift left. The night shift people were slowly coming in, and the floor was sparsely filled. She looked around and found no one paying any attention to her. She opened the global address list on her computer and searched for John Patterson. As the receptionist had said, she found four people with the same name. She looked through the details of each one.
 
-The first John was a vice president of international operations. She ruled him out, as he didn’t seem to be the person who would carry freight around. The second John had a field job in Fraserburgh, in the far north-east. Though his job profile was akin to what she was looking for, it was too far for anyone to make deliveries to Girbin on a regular basis. She put this John aside as her fallback and moved on. The third John was in South Africa. Putting that one aside, she opened the last John’s details.
+The first John was a vice president of international operations. She ruled him out, as he didn’t seem to be the person who would carry freight around. The second John had a field job in Fraserburgh, in the far north-east. Though his job was the kind she was looking for, it was too far for anyone to make deliveries to Girbin on a regular basis. She put this John aside as her fallback and moved on. The third John was in South Africa. Putting that one aside, she opened the last John’s details.
 
-And as fate would have it, this John was a perfect match. He was based in Ayr, and sure enough, he was a freight driver. His profile also showed his reporting line. Above him was the manager of the Ayr freight depot, and above the depot manager was a Mr Cussak, Head of Regional Freight. She hurriedly noted John’s number, his depot and the name of the man two rungs above him.
+This John was a perfect match. He was based in Ayr, and sure enough, he was a freight driver. His profile also showed his reporting line. Above him was the manager of the Ayr freight depot, and above the depot manager was a Mr Cussak, Head of Regional Freight. She noted John’s number, his depot and the name of the man two rungs above him.
 
-Her legs were trembling with fear, and she was perspiring. She had come to Ayr with nothing but a name, and within two weeks of walking through TransPacific’s doors she had found the man who carried it. All she wanted now was to leave the office before anyone noticed her fidgety state, and she already knew whose name she would use to get to his door.
+Her legs were trembling. She had come to Ayr with nothing but a name, and within two weeks of walking through TransPacific’s doors she had found the man who carried it. She wanted to leave the office before anyone noticed, and she already knew whose name she would use to get to his door.
 
 ## Chapter 9
 ### Monday 30th April 2012, Ayr, Scotland
 
-All weekend one thought had stayed with Sanchez, leaving her scared. If a newcomer like her could find John Patterson in two weeks, why had the police failed? Or did they consciously stay away for reasons unknown? Mr MacCallum had never once mentioned a John Patterson, or TransPacific, or any client her father had driven for. Something was not right, and it disturbed her. The more her mind indulged in the quandary, the more uncomfortable and restless she became. She forced her mind away from the past and brought her focus back to John, and after a lot of deliberation, she concocted a plan.
+All weekend one thought had stayed with Sanchez, and it frightened her. If a newcomer like her could find John Patterson in two weeks, why had the police failed? Or did they consciously stay away for reasons unknown? Mr MacCallum had never once mentioned a John Patterson, or TransPacific, or any client her father had driven for. Something was not right. She forced her mind away from the past and back to John, and by Sunday night she had a plan.
 
-Her afternoon went by quickly, mostly in running tasks for the team. She was now well versed in the customer service process, and David had given her the go-ahead to pilot one of the ideas she had proposed. Soon it was evening. She had planned beforehand to stay late, and she patiently waited for the office people to leave. Once convinced that no one was around, she picked up one of the agents’ phones and called John’s number. After a few rings, she heard a deep voice on the other end.
+Her afternoon went by quickly. She was now well versed in the customer service process, and David had given her the go-ahead to pilot one of the ideas she had proposed. Soon it was evening. She stayed late and waited for the office to empty. When no one was around, she picked up one of the agents’ phones and called John’s number. After a few rings, she heard a deep voice on the other end.
 
 Sanchez cleared her throat. “Am I speaking to John Patterson?”
 
@@ -442,45 +438,41 @@ Sanchez cleared her throat. “Am I speaking to John Patterson?”
 
 Mr Cussak was John’s manager’s superior, and her hope was that John wouldn’t risk saying no. Also, as Cussak wasn’t his immediate manager, her belief was that John wouldn’t call him to confirm either.
 
-“Do you know what I need to do with the packet?” came a puzzled response.
-
-The conversation was progressing as she had anticipated.
+“Do you know what I need to do with the packet?” he asked.
 
 “I wouldn’t know. But there is a sealed letter that has all the instructions. Would you prefer to come to the office or do you want me to deliver it to you?”
 
-He took a long pause, and with clear reluctance in his voice said, “It would be great if you could deliver it.” He gave her a house number in a street off George Street, in Wallacetown.
+There was a long pause. Then he said, “It would be great if you could deliver it.” He gave her a house number in a street off George Street, in Wallacetown.
 
-She thanked him and promised to deliver it within the next hour. She couldn’t believe she had John’s address in her possession. Though she knew it was a huge risk, it hardly deterred her from going ahead with her plan.
+She thanked him and promised to deliver it within the next hour. She could hardly believe she had John’s address. She knew it was a risk, and she went anyway.
 
-She ditched her usual bus ride and took a taxi instead. Throughout the ten minutes it took, she kept rehearsing the script she planned to narrate to him. She was agitated and tried her best to keep her anxieties under control. The taxi dropped her across the street from his home, in an old terrace of houses with small front doors opening straight onto the pavement. With her mind clouded with numerous apprehensions, she gently tapped on the door. After a couple of knocks, a dishevelled-looking man appeared. He was in his late fifties, appearing older than his age because of his worn-out look. He was wearing a pair of tattered jeans and a T-shirt with the crest of Ayr United.
+She took a taxi instead of the bus. Throughout the ten minutes it took, she rehearsed what she would say to him. The taxi dropped her across the street from his home, in an old terrace of houses with small front doors opening straight onto the pavement. She knocked on the door. After a couple of knocks, a dishevelled man opened it. He was in his late fifties and looked older. He was wearing a pair of tattered jeans and a T-shirt with the crest of Ayr United.
 
-She quickly introduced herself as the person from Mr Cussak’s office. He looked at her empty hands, and with a confused look responded, “You said you have a packet for me.”
+She introduced herself as the person from Mr Cussak’s office. He looked at her empty hands. “You said you have a packet for me.”
 
-She acknowledged his observation and immediately launched into what she had practised relentlessly on her way.
-
-“Would you be kind enough to allow me inside your house? I want a few minutes of your time and I will explain everything to you,” Sanchez blurted in a most awkward way, not a shade close to what she had rehearsed.
+“Would you be kind enough to allow me inside your house? I want a few minutes of your time and I will explain everything to you,” Sanchez blurted. It was nothing like what she had rehearsed.
 
 He looked at her uncertainly. “What is it about?”
 
-He sounded displeased, and Sanchez was losing the plot at a rapid pace. She continued, “I promise it won’t take much time. I need a few minutes to explain.”
+Sanchez felt the plan slipping away from her. “I promise it won’t take much time. I need a few minutes to explain.”
 
-The old man took a pause, and it appeared to be the longest minute of the evening for Sanchez. With pleading eyes, she kept looking at him. After pondering for a while, he gave in and told her to wait outside. He was back in a minute with his shoes on. “Let us take a walk instead.”
+The old man thought about it for what seemed to her the longest minute of the evening. Then he told her to wait outside. He was back in a minute with his shoes on. “Let us take a walk instead.”
 
-The streets in the neighbourhood were quiet, with a few sporadic evening commuters. As they went past his home, he snapped, “Tell me what is on your mind. Do you even work for TransPacific?”
+The streets were quiet. As they went past his home, he snapped, “Tell me what is on your mind. Do you even work for TransPacific?”
 
-Without raising any further alarm, she explained that she did work for TransPacific, but the entire packet delivery episode was a farce. She had to meet him, and she couldn’t find any other way. Though she apologised with great sincerity, it failed to make any change in his agitated expression. He looked wild and said, “You better have a good explanation, or else you are heading for big trouble.”
+She explained that she did work for TransPacific, but there was no packet. She had to meet him, and she could not find any other way. She apologised, and it made no difference to him. “You better have a good explanation, or else you are heading for big trouble.”
 
-It was time for her to execute her script. She pulled herself out of her confusion and hesitantly continued, “Mr Patterson, let me come straight to the point. Has your business taken you to Girbin in the past? Do you know anyone from there?”
+She pulled herself together. “Mr Patterson, let me come straight to the point. Has your business taken you to Girbin in the past? Do you know anyone from there?”
 
-He stopped abruptly and stared at her with wide-open eyes. His face turned pale. A thousand emotions were crossing his face, and from being confused he soon became scared. Observing his flustered demeanour, she was certain she had found the John she was looking for. Without giving him much time to react, she proceeded, “Mr Patterson, I have no intention of upsetting you or harming you. All I want is answers to some questions. Questions that I have been seeking answers to for the past two years…”
+He stopped and stared at her. His face turned pale, and she saw that he was frightened. She was certain she had found the John she was looking for. Before he could speak, she went on, “Mr Patterson, I have no intention of upsetting you or harming you. All I want is answers to some questions. Questions that I have been seeking answers to for the past two years…”
 
 Her voice trailed off. “I need your help. Please say something.”
 
-He stood there dumbstruck for a while. And when he realised what had struck him, he blurted, “I don’t know what you are talking about. I need to go now,” and hurried back towards his home.
+He stood there for a while without a word. Then he blurted, “I don’t know what you are talking about. I need to go now,” and hurried back towards his home.
 
-Seeing him flee, she dashed to narrow the distance between them. She grabbed his hand from behind, making him slow down. “Mr Patterson, trust me, what you tell me will remain with me. Please… you are my only hope.”
+She ran after him and caught his hand from behind. “Mr Patterson, trust me, what you tell me will remain with me. Please… you are my only hope.”
 
-He pulled his hand away and, without saying anything, surged ahead, leaving her disheartened behind. She dashed with all her might to get in front of him at the corner. He warned her to stay away from him and threatened her with consequences if she came after him. She had no option but to let him go. One thing was certain. He knew something, and he was clearly avoiding any confrontation.
+He pulled his hand away and walked on. She ran to get in front of him at the corner, and he warned her to stay away from him or she would regret it. She had no choice but to let him go. He knew something, and he was frightened of it.
 
 * * *
 
@@ -505,101 +497,101 @@ Sanchez sat very still behind the fruit machine with her lemonade going warm in 
 ## Chapter 10
 ### Sunday 17th June 2012, Ayr, Scotland
 
-Sanchez had barely made any progress in the seven weeks since John Patterson fled from her in Wallacetown. Since the evening in the pub he had changed his route home again, and twice she had seen him turn away at the end of a street the moment he caught sight of her. Her mind was desperate to find some headway but was miserably failing. On a Sunday afternoon, lost in her chaotic quandary, she pulled her father’s notebook from the cupboard.
+Sanchez had barely made any progress in the seven weeks since John Patterson fled from her in Wallacetown. Since the evening in the pub he had changed his route home again, and twice she had seen him turn away at the end of a street the moment he caught sight of her. On a Sunday afternoon, with nowhere left to turn, she pulled her father’s notebook from the cupboard.
 
-While she was languidly flipping through the pages, something caught her attention. She noticed John’s initials scribbled in many places. They were marked against addresses, in footnotes and in to-do lists. She turned to the last pages, the ones her father had filled in the winter he disappeared, and read one entry again, slowly, as if for the first time.
+As she turned the pages, she noticed John’s initials scribbled in many places. They were marked against addresses, in footnotes and in to-do lists. She turned to the last pages, the ones her father had filled in the winter he disappeared, and read one entry again, slowly.
 
 *Tue 2 Feb. JP (TP). Sealed pkg, E.S. office. Bay 7 bond. 11.40.*
 
-She had read the line a hundred times, and it had always meant nothing to her. But until she had seen John’s face go white at the name of Girbin, the two letters had been only letters. She took her phone and checked the calendar for 2010. The second of February was a Tuesday, twelve days before the Sunday her father had walked to the bakery and never come back. Right at that moment she was almost certain that this time John would give in.
+She had read the line a hundred times, and it had always meant nothing to her. But until she had seen John’s face go white at the name of Girbin, the two letters had been only letters. She took her phone and checked the calendar for 2010. The second of February was a Tuesday, twelve days before the Sunday her father had walked to the bakery and never come back. She was almost certain that this time John would give in.
 
-She took her chances and headed straight to his house. It was a grey, mild June afternoon with few people on the streets. She reached the door without anyone noticing her presence. The house appeared deserted, with no sign of any living soul around. She tried peeking through the window, but the curtains were shielding her vision. With some hesitation, she gently knocked on the door and patiently waited for a response. The gentle knocks turned hard, and after repeated attempts John opened the door. She must have woken him from his afternoon sleep, as his long hair was ruffled and scattered over his wrinkled face. His drowsiness vanished as soon as he saw her. He almost closed the door on her, but she used all her might to hold it open and exclaimed, “If you don’t listen to me, soon you will need to answer to the police.”
+She went straight to his house. It was a grey, mild June afternoon with few people on the streets. The house looked deserted, and the curtains were drawn. She knocked gently, then harder, and at last John opened the door. She must have woken him from his afternoon sleep, as his long hair was ruffled over his wrinkled face. He was wide awake as soon as he saw her. He almost closed the door on her, but she held it open with all her strength. “If you don’t listen to me, soon you will need to answer to the police.”
 
-That worked. All his resistance vanished, and with dropped shoulders, he said, “Why don’t you leave me alone? You don’t know what you are looking for. It will ruin us.”
+That worked. His shoulders dropped. “Why don’t you leave me alone? You don’t know what you are looking for. It will ruin us.”
 
-She pushed herself into his house as if she had an unstated decree to be in his living room. This time the old man hardly resisted and slouched on the sofa. He appeared defeated, and by his looks he had certainly submitted himself to the situation.
+She walked into his house as if she had every right to be there. This time the old man did not resist, and he slouched on the sofa.
 
-Sanchez sat on the chair right across from him. Without wasting any time, she opened the notebook at the page and held it out to him. “This is my father’s handwriting. On the second of February 2010 you gave my father a sealed package. Twelve days later he was gone. The police will want to know about the package.”
+Sanchez sat on the chair right across from him. She opened the notebook at the page and held it out to him. “This is my father’s handwriting. On the second of February 2010 you gave my father a sealed package. Twelve days later he was gone. The police will want to know about the package.”
 
 He looked at the page for a long time without touching it. He seemed to know the entry without reading it.
 
 “Mr Patterson, as I said before, I have no intention of harming you. I want to know what happened, and trust me, once I have the truth you are out of it. No one will know anything.”
 
-He was eager to escape. In a low tone, he said, “You got to trust me. I hardly know anything to tell you.”
+He said quietly, “You got to trust me. I hardly know anything to tell you.”
 
-She was hesitant to interrupt his flow of thoughts and kept her anxiety under control. He was gazing at the ceiling as if trying to recollect the old times, and continued, “It was something to do with that package…” His voice trailed off, and he became silent.
+She did not interrupt. He was gazing at the ceiling as if trying to remember, and he went on, “It was something to do with that package…” His voice trailed off, and he became silent.
 
-Her mouth was dry. She couldn’t hold her nerves any longer and blurted, “What package? Who sent the package?”
+Her mouth was dry. She could not wait any longer. “What package? Who sent the package?”
 
-“I have no idea what was in it. All I can tell you is that the instruction came from the head office. It came from Evan Slater’s office, from Mr Slater himself, the chairman. They wanted a driver who wasn’t on the staff, and I gave it to your dad. Please keep me out of it. You need to believe me. I don’t know anything beyond this.” His eyes were pleading. There was sincerity in his request, and he clearly wanted to escape from her trap.
+“I have no idea what was in it. All I can tell you is that the instruction came from the head office. It came from Evan Slater’s office, from Mr Slater himself, the chairman. They wanted a driver who wasn’t on the staff, and I gave it to your dad. Please keep me out of it. You need to believe me. I don’t know anything beyond this.” His eyes were pleading, and she believed him.
 
-Before letting him go, she had one final question for him. Why was he so scared? But he didn’t have any answer for her. He kept gazing at the floor, as if he couldn’t face her any more. He did not mention the man in the grey suit, and neither did she.
+Before she let him go, she asked him one last question. Why was he so scared? He had no answer for her. He kept gazing at the floor, as if he couldn’t face her any more. He did not mention the man in the grey suit, and neither did she.
 
-She thanked him and assured him that whatever he had said would stay with her. It appeared as if he had got himself out of a guilt he had been carrying for a while, and he regained a sense of calmness. He did not see her to the door.
+She thanked him and assured him that whatever he had said would stay with her. He seemed calmer, as if he had put down something he had carried for a long time. He did not see her to the door.
 
-On the bus home she opened the notebook again at the same page. There was a distinct sense of accomplishment, yet there was an uncertainty that snatched all her exhilaration away. E.S. was Evan Slater. And Evan Slater’s office was on the top floor of the building where, every afternoon, she answered the company’s customers on the telephone.
+On the bus home she opened the notebook again at the same page. E.S. was Evan Slater. And Evan Slater’s office was on the top floor of the building where, every afternoon, she answered the company’s customers on the telephone.
 
 ## Chapter 11
 ### Monday 18th June 2012, Ayr, Scotland
 
-It wasn’t an arduous job for Sanchez to trace Evan Slater. A quick search on the global address list was all she had to do. He was the Executive Chairman, UK and Northern Europe Operations, and in his profile picture he appeared to be in his early fifties. She did some further research and learned he was one of the three people who had founded TransPacific in the nineties. He was a self-made man who lived in Troon and sat high on the *Sunday Times* Rich List. To her astonishment, besides this, not much was written about him in the public domain. He had not spoken at any conferences or been interviewed by any newspaper. Compared to the other founders, he was the least mentioned. She continued her research for several days but failed to find anything meaningful, and she concluded that he was either an introvert or extremely particular about his privacy. She thought of visiting him, but access to the executive floor was restricted.
+It was not hard for Sanchez to trace Evan Slater. A search on the global address list was all it took. He was the Executive Chairman, UK and Northern Europe Operations, and in his profile picture he appeared to be in his early fifties. She did some further research and learned he was one of the three people who had founded TransPacific in the nineties. He was a self-made man who lived in Troon and sat high on the *Sunday Times* Rich List. Besides this, to her surprise, very little had been written about him. He had not spoken at any conferences or been interviewed by any newspaper. Compared to the other founders, he was the least mentioned. She went on searching for several days and found nothing more, and she concluded that he guarded his privacy with great care. She thought of visiting him, but access to the executive floor was restricted.
 
-The weeks went by without any progress, and nothing she tried brought her an inch closer to the top floor. She was bereft of recourse but not hope, and her job at TransPacific kept her going.
+The weeks went by, and nothing she tried brought her an inch closer to the top floor. Her job at TransPacific kept her going.
 
-David was pleased with the impact she had created in a short time. The idea she had piloted on process quality was entered into the company-wide innovation contest run by the corporate office, and it was shortlisted as one of the top three ideas across the organisation. She was invited to present it to an evaluation committee. She was delighted to learn that the chief guest was none other than Evan Slater. She prepared well for the day. She revised her idea, tested it with the team, created a running report from the pilot and quantified the outcomes.
+David was pleased with what she had done in a short time. The idea she had piloted on process quality was entered into the company-wide innovation contest run by the corporate office, and it was shortlisted as one of the top three ideas across the organisation. She was invited to present it to an evaluation committee. The chief guest was to be Evan Slater. She prepared well for the day. She revised her idea, tested it with the team, created a running report from the pilot and quantified the outcomes.
 
 * * *
 
 *Ayr, Wednesday 1st August 2012*
 
-On the day of the presentation, Sanchez and the two other finalists were called up to the executive floor. The executive conference room was one of the swankiest places she had ever seen, octagonal in shape, with a glass-top table in the centre and a view across the rooftops of Ayr to the sea. The walls were lined with mahogany bookshelves, except for one space opposite the window, where a large framed photograph hung by itself. It showed a black-hulled ship at sea with its name painted along the bow in tall white capitals, DAZZLE.
+On the day of the presentation, Sanchez and the two other finalists were called up to the executive floor. The executive conference room was the grandest room she had ever seen, octagonal, with a glass-top table in the centre and a view across the rooftops of Ayr to the sea. The walls were lined with mahogany bookshelves, except for one space opposite the window, where a large framed photograph hung by itself. It showed a black-hulled ship at sea with its name painted along the bow in tall white capitals, DAZZLE.
 
-Five minutes before the event began, she saw the executives walking in. The panel of judges comprised five people, representing the five divisions of TransPacific. One of the judges was Evan Slater. His appearance was exactly like his profile picture. He was wearing a sharp dark suit, and his face was beaming with a radiant smile. When he passed the photograph of the ship, he gave it a glance, the way a man looks at something he is proud of. Besides the judges, there were the business managers of the three divisions whose ideas had been selected, and David was one amongst them. There were also a few people whom she couldn’t identify, but by their looks they were from the executive office. After the initial introductions, each finalist got about fifteen minutes to present.
+Five minutes before the event began, the executives walked in. There were five judges, one from each division of TransPacific, and one of them was Evan Slater. He looked exactly like his profile picture, in a sharp dark suit, and he was smiling broadly. When he passed the photograph of the ship, he gave it a glance, the way a man looks at something he is proud of. Besides the judges, there were the business managers of the three divisions whose ideas had been selected, and David was one amongst them. There were also a few people she did not know, who looked as if they were from the executive office. After the initial introductions, each finalist got about fifteen minutes to present.
 
 Sanchez was the last one to go. She was confident for a few reasons. Her pilot showed that she could save the company upwards of five million pounds over five years, the highest amongst her competition. She had a working prototype while the others had a concept on paper. And she was good at public presentation.
 
 The presentations were done on time, and the participants were asked to wait in an adjacent room. After about twenty minutes they were called back in, and she was announced the winner.
 
-For a moment she did not move. The room was clapping, and David was clapping hardest of all, and she found that she could not see him clearly. She thought of the letter she had written in her little flat in March, and of the line she had meant with all her heart, *My father was a delivery man*. Nobody in the room knew what it had cost her to be standing there, and for once she did not mind. She let herself be proud. Much against her wish, a trickle of tears appeared at the corners of her eyes, and she laughed at herself as she wiped them away.
+For a moment she did not move. The room was clapping, and David was clapping hardest of all, and she found that she could not see him clearly. She thought of the letter she had written in her little flat in March, and of the line she had meant with all her heart, *My father was a delivery man*. Nobody in the room knew what it had cost her to be standing there. She let herself be proud. There were tears in her eyes, and she laughed at herself as she wiped them away.
 
 Besides some bonus money and a certificate, she got what she least expected, a chance to see her idea through inside Evan Slater’s own office. Evan shook her hand. “Well done,” he said, in a clipped voice that sounded faintly annoyed even when it praised. “I look forward to seeing you upstairs.” His hand was dry and warm, and she held on to her smile until he had let go.
 
 After Evan had gone, a man walked up to her and introduced himself as Bradley Fawcett, programme manager in the executive office. He said that from Monday she would be working for him and asked her to come and see him in his office the next day.
 
-She knew the face. It took her a second to place it, because it was the kind of face that was hard to remember. It was the man in the grey suit from the corner table in Newton-on-Ayr.
+She knew the face. It took her a second to place it, because it was a face that was hard to remember. It was the man in the grey suit from the corner table in Newton-on-Ayr.
 
-He gave no sign that he had ever seen her before. He handed her his card, wished her a pleasant evening and swiftly walked out of the room.
+He gave no sign that he had ever seen her before. He handed her his card, wished her a pleasant evening and walked out of the room.
 
 ## Chapter 12
 ### Monday 15th October 2012, Ayr, Scotland
 
 It was a few minutes past six in the morning, and Sanchez had the executive floor to herself. She let herself in with her pass, switched on only the lamp at her own desk and listened for a while to the hum of the building before she moved.
 
-She had been working for Bradley Fawcett since the first week of August. He was the programme manager responsible for executing several of Evan’s most important programmes, and her job was to ensure that her idea got implemented and the benefits delivered. One thing she understood was that TransPacific recognised talent, for giving a part-time student such a responsibility was a rare sight in any company. Over the weeks she found Bradley to be astute, and she learned a lot from him about managing timelines, delivering quality work and getting milestones accomplished.
+She had been working for Bradley Fawcett since the first week of August. He was the programme manager responsible for executing several of Evan’s most important programmes, and her job was to ensure that her idea got implemented and the benefits delivered. Few companies would have given a part-time student such a responsibility. Over the weeks she found Bradley to be astute, and she learned a lot from him.
 
-Despite being so close to Evan’s office, she made no progress on her own agenda. Partly it was because Bradley was omnipresent. He ensured she always had company, and he was the first one to come and the last one to leave the office. Whenever she looked up from her desk, he seemed to be somewhere in the corner of her vision. His protective demeanour wasn’t helping her investigations.
+Despite being so close to Evan’s office, she made no progress on her own search. Partly it was because Bradley was everywhere. He ensured she always had company, and he was the first one to come and the last one to leave the office. Whenever she looked up from her desk, he seemed to be somewhere in the corner of her vision. 
 
-It was two months into her new role when she noticed some strange behaviour on the floor. A visitor came to see Evan, and the entire floor was cordoned off. All employees were confined to a small zone with strict instructions not to trespass until the visitor had gone. No one knew the reason behind such an outlandish demand, and to her disbelief, people followed the routine and never questioned it.
+It was two months into her new role when she noticed something strange on the floor. A visitor came to see Evan, and the entire floor was cordoned off. All employees were confined to a small zone with strict instructions not to trespass until the visitor had gone. No one knew the reason, and to her surprise nobody asked.
 
-Evan’s assistant, Kirsty, a young woman in her mid-twenties, had become a good friend. One day over the lunch table, Sanchez casually enquired about the fuss. Kirsty kept most of her comments to herself, and the only thing she let slip was a name, Benedikt, and how the floor became a secured zone whenever he was around.
+Evan’s assistant, Kirsty, a young woman in her mid-twenties, had become a good friend. One day over lunch, Sanchez asked her about it. Kirsty kept most of her comments to herself, and the only thing she let slip was a name, Benedikt, and how the floor became a secured zone whenever he was around.
 
-After that Sanchez realised that the only way she could be on her own was by coming to the office before Bradley. She decided to be in by six. While alone, she looked through files, searched office drawers and peeked into Evan’s outer office, but she couldn’t find anything meaningful.
+After that Sanchez realised that the only way she could be on her own was by coming to the office before Bradley. She decided to be in by six. While alone, she looked through files, searched office drawers and peeked into Evan’s outer office, but she found nothing of use.
 
 This morning she had got no further than the first drawer of Kirsty’s filing cabinet when she heard the lift. It was a week into her early morning ventures. She closed the drawer and was back at her desk with her coat still on by the time Bradley walked through the glass doors. In a stern voice, he told her to see him in his office.
 
-She entered his office. She was petrified, and no matter how much she tried, she couldn’t shrug away her startled look. He didn’t greet her, and in a demanding tone, he asked why she was snooping around. Her mind went numb. She tried her best to regain her composure and responded softly that she had no clue what he was talking about.
+She went into his office, and she was frightened. He did not greet her. He asked why she was snooping around. Her mind went blank, and she told him softly that she did not know what he meant.
 
-His eyes were searching her, making her lose any remaining nerve. He said he was aware of all her proceedings and had the videos to prove it. So far only he knew about it, but if she refused to tell the truth, he would be forced to involve the security team.
+He watched her face. He said he was aware of all her proceedings and had the videos to prove it. So far only he knew about it, but if she refused to tell the truth, he would be forced to involve the security team.
 
-She was caught red-handed. Her mind was whirling hard to spin a story, and out of nervousness she blurted the wrong words. “It is out of sheer inquisitiveness. I was eager to find out why we are put in isolation when Benedikt arrives.”
+She had been caught. She tried to think of a story, and out of nervousness she blurted the wrong words. “It is out of sheer inquisitiveness. I was eager to find out why we are put in isolation when Benedikt arrives.”
 
 His next question was how she knew about Benedikt. She didn’t want to put Kirsty in any trouble and gave a vague answer, saying she herself couldn’t recall how she knew his name.
 
-Bradley told her to take a seat and offered her some water, which she accepted. Her guard was down, and she was starkly exposed. His gazing eyes were disturbing her the most. After a couple of long minutes he said, “Look, I know you are not telling me the truth, but honestly, I don’t care. I have no interest in why you are sniffing around. However, I am interested in you.”
+Bradley told her to take a seat and offered her some water, which she accepted. He went on looking at her. After a couple of long minutes he said, “Look, I know you are not telling me the truth, but honestly, I don’t care. I have no interest in why you are sniffing around. However, I am interested in you.”
 
-He took a long pause. She was puzzled by the sudden change in his stance. She kept quiet and waited for him to continue. “I can help you with what you are looking for. Let us head out for a cup of coffee. Shall we?”
+He paused. She kept quiet and waited. “I can help you with what you are looking for. Let us head out for a cup of coffee. Shall we?”
 
-She didn’t react and meekly followed him. Across the road from the office there was an Italian coffee shop. They settled down with two cups of black coffee, and Bradley took the table at the back, in the corner. Without mincing any words, he continued, “Evan is running a large scam. I am not sure what they carry, but I am certain they are moving goods along a route that starts in Europe and goes all the way to Russia. The route is drawn again every three months, and Benedikt is its custodian. I want you to join me and help me collect evidence against them. You are intelligent, and you are different. We can form a good team.”
+She followed him without a word. Across the road from the office there was an Italian coffee shop. They settled down with two cups of black coffee, and Bradley took the table at the back, in the corner. He came straight to the point. “Evan is running a large scam. I am not sure what they carry, but I am certain they are moving goods along a route that starts in Europe and goes all the way to Russia. The route is drawn again every three months, and Benedikt is its custodian. I want you to join me and help me collect evidence against them. You are intelligent, and you are different. We can form a good team.”
 
 He took a sip of his coffee and continued in the same even voice. “Your father was a contract driver. He made deliveries for this company through an agency, and in February 2010 he disappeared. I know why you are here, even if you will not say it. If you want to find out what happened to him, you will not do it by opening drawers at six in the morning.”
 
@@ -607,15 +599,15 @@ She stared at him. He had known all along, perhaps since the evening in Newton-o
 
 “Remember, this discussion remains between us. If you try to act smart and tell anyone about it, I will expose you. No one will believe your story once I show the videos.”
 
-She had no option but to say yes. However, she was curious to know more about him. Though hesitant, she still asked, “Who are you? Why are you after Evan?”
+She had no choice but to say yes. Still, she wanted to know more about him. “Who are you? Why are you after Evan?”
 
 He responded brusquely. “I will not ask you any more about your reasons, and you will not ask me about mine.”
 
-She agreed, as that way she could keep her secrets. Confused, she asked what he wanted from her.
+She agreed, as that way she could keep her secrets. She asked what he wanted from her.
 
-“For now, I want you to join a gym, a kickboxing class, karate and rock climbing. You are already enrolled. Make sure you learn the skills with utmost sincerity. Trust me, you will need them.” There was something cold in his smile that made her uncomfortable.
+“For now, I want you to join a gym, a kickboxing class, karate and rock climbing. You are already enrolled. Learn them properly. You will need them.” There was something cold in his smile.
 
-Though surprised, she timidly accepted. For the months that followed, all she did besides her classes and her afternoons at TransPacific was train her body. She was frustrated. At times she desired to escape, but she shrugged the thought away, knowing what Bradley was capable of doing.
+She accepted. For the months that followed, all she did besides her classes and her afternoons at TransPacific was train her body. At times she wanted to walk away, but she knew what Bradley could do to her.
 
 * * *
 
@@ -625,7 +617,7 @@ It was nearly eleven at night when Sanchez reached the back of the old harbour s
 
 He held up a stopwatch. “To the skylight frame and back down. Touch the frame with your right hand. Go.”
 
-She took hold of the pipe. It was cold and wet, and the first bracket was loose in the brickwork, as she had learned on her first attempt a week ago. She put her weight on the second one instead and went up with her feet flat against the wall, the way she had once gone up the ropes in the school gymnasium in Girvan. Halfway up, the pipe shifted at a joint and a little rust rained down on her face. She waited until it was still, then went on. At the gutter she reached across, touched the skylight frame and started down, slower than she wanted to, because she had come off this pipe once already and still had the bruise on her hip.
+She took hold of the pipe. It was cold and wet, and the first bracket was loose in the brickwork, as she had learned on her first attempt a week ago. She put her weight on the second one instead and went up with her feet flat against the wall, the way she had once gone up the ropes in the school gymnasium in Maybole. Halfway up, the pipe shifted at a joint and a little rust rained down on her face. She waited until it was still, then went on. At the gutter she reached across, touched the skylight frame and started down, slower than she wanted to, because she had come off this pipe once already and still had the bruise on her hip.
 
 When her feet touched the cobbles, he stopped the watch. He looked at it for a while in the light of his phone. Then he put it in his pocket and walked away towards the road without a word.
 
@@ -656,7 +648,7 @@ She had left her placement at TransPacific before Christmas, telling David Bucha
 
 It showed a tall man in a dark suit getting out of a car. He had dark brown hair brushed back to his collar and a face that gave nothing away.
 
-“His name is Benedikt Voss,” Bradley said. “He was born in Germany and raised in Denmark, and he carries a Danish passport. He is thirty-one. Last summer he became head of security for the route, and the map you have heard about travels in his briefcase. It has done for two years.”
+“His name is Benedikt Voss,” Bradley said. “He was born in Germany and raised in Denmark, and he carries a Danish passport. He is thirty-one. Last summer he became head of security for the route, and since then the map you have heard about has travelled in his briefcase. Before that it travelled with the man he replaced.”
 
 “The man they clear the floor for.”
 
@@ -708,7 +700,7 @@ He took an envelope from his coat and slid it across the table under the photogr
 
 She put the envelope in her bag without counting it. She put the photograph in with it.
 
-Bradley stood up and buttoned his coat. Then he stopped beside the table and looked down at her, and for the first time since she had known him he seemed to choose his words.
+Bradley stood up and buttoned his coat. Then he stopped beside the table and looked down at her, and she saw that he was choosing his words.
 
 “One more thing. Every player at that table has a tell.”
 
@@ -740,61 +732,53 @@ There was a long silence on the line. She could hear the television in the front
 
 ### 4:00 AM, Wednesday 16th April 2014, Zurich, Switzerland
 
-The same jolt that woke Sanchez as the night train crept into Zurich pulled Maxwell out of his slumber, two carriages behind her. For the first few seconds, he was in a state of oblivion, trying hard to figure out his whereabouts. As reality sank in, his first reflex was to ensure Sanchez was still on the train. He hurried forward along the corridor to her carriage and found her seat empty.
+The same jolt that woke Sanchez as the night train crept into Zurich pulled Maxwell out of his sleep, two carriages behind her. For a few seconds he did not know where he was. Then he remembered, and his first thought was whether Sanchez was still on the train. He hurried forward along the corridor to her carriage and found her seat empty.
 
-He transformed from his lethargic self to a sprinter with a purpose. He leapt out of the train with his eyes searching for her in all directions. It was the wee hours, and to his advantage, there were few people on the platform. He scanned each one of them with prying eyes, and then he saw her not too far away from him, hurrying towards the north exit. He rushed back onto the train, grabbed his bag and went after her. He moved with watchful steps, taking care not to make the chase look too obvious. From a distance, he saw her disappearing behind the door of a BMW parked by the kerb of the station exit.
+He jumped down on to the platform and looked both ways. There were few people about at that hour, and then he saw her not far away, hurrying towards the north exit. He went back for his bag and followed her, keeping well back. From a distance, he saw her disappearing behind the door of a BMW parked by the kerb of the station exit.
 
-This wasn’t part of his plan. Sanchez had taken him by complete surprise. He had a well-laid-out scheme to trail her upon her arrival in Basel, for in Ayr, where she had known him as Bradley Fawcett, she had told him everything about the hotel and nothing about the road beyond it. “That part is mine,” she had said, and he had let it go. And here he was, in the middle of Zurich without any support, dishevelled and frustrated. He saw a taxi rank next to the exit, and he dashed towards it with all his might. The first car in the rank was a grey Peugeot. He got in, flashed the driver an identity card that carried no authority whatsoever in Switzerland and told him to follow the BMW.
+This was not part of his plan. He had meant to pick her up in Basel, for in Ayr, where she had known him as Bradley Fawcett, she had told him everything about the hotel and nothing about the road beyond it. “That part is mine,” she had said, and he had let it go. And here he was in the middle of Zurich with no support at all. He ran for the taxi rank next to the exit. The first car in the rank was a grey Peugeot. He got in, showed the driver an identity card that carried no authority whatsoever in Switzerland, put two hundred francs on the seat beside him and told him to follow the BMW.
 
-The taxi driver was startled. Though reluctant, he followed the instructions, unsure what had struck him. Maxwell’s mind was racing. He tried to comprehend Sanchez’s sudden change in plan but failed to conclude anything meaningful. The streets were empty at that hour, and a lone taxi was far easier to notice than he would have liked. After about fifteen minutes of following her, he observed the BMW making some random turns, as if the driver was aware of being followed. He instructed the taxi driver to slow down and to drop back as far as he dared.
+The driver was not happy, but he took the money and did as he was told. The streets were empty at that hour, and a lone taxi was far easier to notice than he would have liked. After about fifteen minutes the BMW began to make random turns, as if the driver knew he was being followed. Maxwell told the taxi driver to drop back as far as he dared, but he had no choice except to follow, for he could not afford to lose her. Then the car took a sharp turn into a side lane. It took him a couple of minutes to make that turn, and when he finally got to the cross street, the BMW was nowhere to be seen. There was a big block of flats on the left. He peeked at the entrance to its car park as he went past it and got a glimpse of the car. He asked the driver to take the next right, stop by the kerb and wait with the meter running. He had a feeling that someone would come looking for him. He walked back to the street of the flats. Across the road was a petrol station with an all-night café, the only lit window in the street. He walked in, ordered a coffee and took the corner seat facing the door. From where he was sitting, he had a clear sight of the street and of the entrance to the flats.
 
-His doubt was confirmed when the BMW continued taking some erratic paths. He had no option but to follow, for losing sight of her was a risk he couldn’t afford. As he was contemplating his next move, he saw the car taking a sharp turn into a side lane. It took him a couple of minutes to make that turn, and when he finally got to the cross street, the BMW was nowhere to be seen. There was a big block of flats on the left. He peeked at the entrance to its car park as he went past it and got a glimpse of the car. He asked the driver to take the next right and stop by the kerb. He had a strong intuition that someone would come looking for him. He walked back to the street of the flats. Across the road from them was a petrol station with an all-night café, the only lit window in the street. He had told the driver to keep the meter running and wait. He walked in, ordered a coffee and took the corner seat facing the door. From where he was sitting, he had a clear sight of the street and of the entrance to the flats.
+His guess was right. In about twenty minutes he saw a young man in his early twenties come out of the car park. The man put his back to the wall of the building, looked out without showing more of himself than he had to and glanced both ways along the street. Then he walked to the corner, looked about him for a while and turned back towards the flats. Maxwell stayed in his corner seat and watched him go.
 
-His guess was right. In about twenty minutes he saw a young man in his early twenties come out of the car park. The man put his back to the wall of the building, peeped out without exposing his torso and glanced at both sides of the street. Then he walked to the intersection with cautious eyes, looked about him for a while, and once satisfied with his investigation, turned back towards the flats. Maxwell stayed in his corner seat and watched him go.
+Ten minutes later he saw the BMW rolling out of the car park. It made a left on the street and headed north. This time Maxwell kept the taxi much further back. After a few turns, he saw the BMW heading towards the A3 motorway. He was relieved, as trailing a car on a motorway was much easier than in the lattice of Zurich streets. For the better part of an hour and a half they kept to the limit of a hundred and twenty and a long way back, while the sky turned grey over the mountains, and the meter climbed to a sum he did not like to look at. Then the Walensee appeared below the road, still and dark between its steep green walls, as lovely a lake as any in Switzerland, and the BMW took the exit for Walenstadt. It drove for another ten minutes before it turned into a small lane climbing the hill above the town.
 
-Ten minutes later he saw the BMW rolling out of the car park. It made a left on the street and headed north. This time Maxwell was extra prudent. He kept the taxi at a distance and traced the path with added stealth and alertness. After a few turns, he saw the BMW heading towards the A3 motorway. He was relieved, as trailing a car on a motorway was much easier than in the lattice of Zurich streets. For the better part of an hour and a half, he kept to the limit of a hundred and twenty and a long way back, while the sky turned grey over the mountains. Then the Walensee appeared below the road, still and dark between its steep green walls, as lovely a lake as any in Switzerland, and the BMW took the exit for Walenstadt. It drove for another ten minutes before it turned into a small lane climbing the hill above the town.
+Maxwell did not follow it into the lane. As they passed, he glanced up it. He could not see the BMW, but he saw a blue sign which read *Sackgasse*, and he knew the lane led to a dead end. He was certain they would be in one of the houses along it.
 
-Maxwell avoided the turn to ensure he didn’t give himself any undue exposure, especially when the chase was almost coming to an end. As he passed the lane where Sanchez’s car had turned, he cast a fleeting glance to see which way it travelled. He couldn’t see the BMW but managed to see a blue sign which read *Sackgasse*. A thin smile crossed his lips, as he knew the lane led to a dead end. He was certain they would be in one of the houses along it.
+At the next junction he paid off the taxi, and the driver left in a hurry. Maxwell gave himself a few minutes before he walked towards the lane where the BMW had turned. About two hundred metres up the lane, he saw another cutting to the left. He took it. As he walked along the narrow way, he saw a row of two-storey holiday flats. After passing the first two blocks, he saw the BMW neatly parked in the front row facing the lane. Only one window in the building had its lights on.
 
-At the next intersection, he paid off the taxi. The driver fled with a screeching noise, trying to get away from the ordeal as fast as he could. Maxwell gave himself a few minutes before starting to walk towards the lane where the BMW had turned. About two hundred metres up the lane, he saw another cutting to the left. He followed his instincts and took it. As he walked along the narrow way, he saw a row of two-storey holiday flats. After passing the first two blocks, he saw the BMW neatly parked in the front row facing the lane. Only one window in the building had its lights on. Even in the grey of the morning, it would have been hard for anyone to miss the smile that graced his face.
+He did not know how long they would stay. He needed a car of his own and a way of keeping them in sight without sitting at the end of their lane. He retraced his path to the main road and found a bench by the little station at the foot of the town. He pulled out his phone and called a man in Zurich who had once been a policeman and now fitted alarms, and who owed him nothing. It took ten minutes of persuading and a promise of money Maxwell would have to find from his own pocket. Then he waited. It was nearly two hours before a grey Škoda estate pulled up beside the station. A man in his mid-thirties stepped out and handed him the keys and a small packet. Maxwell shook his hand and slipped into the car, while the man walked onto the platform for the next train back to Zurich.
 
-He knew he had only a few hours before they moved again, and he had some chores to do before they left. He needed a car of his own and a way of keeping them in sight without sitting at the end of their lane. He retraced his path to the main road and found a bench by the little station at the foot of the town. He pulled out his phone and called a contact in Zurich, and was in a discussion for about ten minutes. Then he waited. It was nearly two hours before a grey Škoda estate pulled up beside the station. A man in his mid-thirties stepped out and handed him the keys and a small packet. Maxwell shook his hand and slipped into the car, while the man walked onto the platform for the next train back to Zurich.
+Maxwell parked the Škoda at the foot of the lane and walked up. When he reached the block, the lit window had gone dark.
 
-Maxwell parked the Škoda at the foot of the lane where Sanchez was sheltered. He trod the path with extra vigilance. When he reached the block, his inquisitive eyes searched for the lit window. Sure enough, the lights were off.
-
-It was still early on a lazy Wednesday, and the lane was asleep. Taking the morning mist as his shield, he went to work. The packet held a transmitter, which he fixed under the boot of the BMW, a little away from the exhaust. He turned it on and checked the signal on his receiver. The screen came to life and displayed the position of the BMW. It had been a long chase, and now that he had taken care of what was important, he could look forward to some rest. He walked back to the Škoda, reclined the seat and dozed off. This time he trusted the receiver’s beep to keep a check on his sleep. Once, in the afternoon, it woke him when the BMW went down the valley towards Zurich. He let it go, and it was back in the lane before dark. He had neither the verve nor any energy left to be paranoid and stay awake.
+It was still early on a lazy Wednesday, and the lane was asleep. Taking the morning mist as his shield, he went to work. The packet held a transmitter, which he fixed under the boot of the BMW, a little away from the exhaust. He turned it on and checked the signal on his receiver. The screen came to life and displayed the position of the BMW. He walked back to the Škoda, reclined the seat and dozed off. He trusted the receiver’s beep to wake him. Once, in the afternoon, it woke him when the BMW went down the valley towards Zurich. He let it go, and it was back in the lane before dark.
 
 * * *
 
 *Walenstadt, 6:00 AM, Thursday 17th April*
 
-The constant beeping of the receiver shook Maxwell out of his slumber a little before six the next morning. In his apprehension of Sanchez escaping unnoticed, he had slept miserably. And now when he tried ditching his repose, he felt as if he hadn’t slept at all. The dot on the screen was already moving down towards the motorway. This time Maxwell wasn’t in a hurry, for the transmitter would help him find them without any more speeding car chases. By six o’clock he was on the A3 behind them. He kept a safe distance, but within reach, to help recover from any untoward situation.
+The beeping of the receiver woke Maxwell a little before six the next morning. He had slept badly, and he felt as if he had not slept at all. The dot on the screen was already moving down towards the motorway. This time he was in no hurry, for the transmitter would find them for him. By six o’clock he was on the A3 behind them, well back but within reach.
 
-After about an hour of driving, the dot left the motorway and he saw the signs for Zurich Airport. He couldn’t resist a smile and admired their nerve. “The last place anyone would expect them to come back to,” he murmured. The dot stopped at the car-rental return. He left the Škoda in the short-stay car park and walked across to the Hertz bays, where the BMW stood empty. Nobody paid him the slightest attention as he bent down beside the boot. The transmitter was the only thing he had left in Switzerland that could be traced to him, and he wanted it back. It came away in his hand, and he slipped it into his pocket and headed for the terminal.
+After about an hour of driving, the dot left the motorway and he saw the signs for Zurich Airport. He admired their nerve. “The last place anyone would expect them to come back to,” he murmured. The dot stopped at the car-rental return. He left the Škoda in the short-stay car park and walked across to the Hertz bays, where the BMW stood empty. Nobody paid him the slightest attention as he bent down beside the boot. The transmitter was the only thing he had left in Switzerland that could be traced to him, and he wanted it back. It came away in his hand, and he slipped it into his pocket and headed for the terminal.
 
-Soon he was in the departures hall. He put his hood up and walked along the rows of desks with vigilant eyes. It took him less than five minutes to find them, standing in the TAP Portugal queue. He had no clue what waited for her in Portugal, but he meant to find out. He followed them to the queue. There was one passenger between him and Sanchez. It was the closest he had come to her since Ayr.
+Soon he was in the departures hall. He put his hood up and walked along the rows of desks. It took him less than five minutes to find them, standing in the TAP Portugal queue. He joined it. There was one passenger between him and Sanchez. It was the closest he had come to her since Ayr.
 
-He saw them purchasing tickets from the counter. As soon as they disappeared from his sight, he approached the lady at the desk, showed his identity card, looked at her badge and said in an urgent but firm tone, “Miss Keller, I need you to answer a few questions about the two passengers you were attending to a few minutes ago.”
+He saw them buy tickets at the counter. As soon as they had gone, he went up to the lady at the desk, showed his identity card, looked at her badge and said, “Miss Keller, I need to know which flight the two passengers you have just served are on.”
 
-Maxwell had taken the lady completely by surprise. She looked frightened. With a stuttering voice she said, “I have to get my supervisor.”
+She looked at the card for a long time and then fetched her supervisor. The supervisor looked at it longer still. “This is a British card, sir,” he said politely. “If the Swiss police ask us, we will tell them. We cannot tell you.”
 
-Within a minute, the supervisor came rushing to the scene. Maxwell showed him the card and continued, “There was a young couple who bought tickets from this counter a few minutes back. I want to know which flight they are on.”
+Maxwell had expected nothing else, and he did not argue. He looked up at the departures board behind the desk. There was only one TAP flight that morning, to Lisbon, and it left at ten past eight.
 
-The supervisor was nonplussed, and Maxwell was losing patience. “Look, you are wasting time.”
+“Then I would like a ticket to Lisbon,” he said, and pulled out his credit card. “Near the front, if you have it.”
 
-The supervisor regained his composure. He looked at the lady at the counter and said, “Get him whatever he needs.”
+The supervisor watched him until he was through the security gate.
 
-The lady turned to her keyboard. Her hands were moving fast, and staring at the screen she said, “Their names are Sanchez and Stephen Roberti. They are on the flight to Lisbon. It leaves at ten past eight.”
+He cleared security in ten minutes and kept his hood on. At a coffee shop near the gate he saw them both sitting at a table, deep in conversation. He turned back at once and found a seat in the waiting area from which he could watch them. He pulled a book out of his bag and pretended to read.
 
-Maxwell pulled out his credit card and gave it to her. “Put me on the same plane. Give me a seat a few rows ahead of them.”
+She had put her brother and a car in Zurich without a word to him, and she had very nearly lost him on an empty street. He had taught her some of that himself, in the cafés of Ayr, and he had not expected to have it used on him.
 
-As she worked on the ticket, Maxwell turned towards the supervisor. “They aren’t criminals. I am following them for a different reason, and I would be grateful if this conversation went no further.” The supervisor, though perplexed, showed his agreement with reluctance, and Maxwell swiftly moved towards the security gate.
-
-He cleared security in ten minutes and kept his hood on, covering a good part of his face. With watchful steps, he sauntered towards the gate. At the entrance of a coffee shop near it he saw them both sitting at a table, in some deep conversation. Maxwell immediately retraced his steps and found a seat in the waiting area from where he could easily observe them. He pulled a book out of his bag and pretended to read.
-
-She had put her brother and a car in Zurich without a word to him, and she had very nearly lost him on an empty street. He had watched her grow up since the evening he first saw her across a pub in Newton-on-Ayr, and he still could not decide whether what he felt when he watched her was admiration or guilt. He suspected it was both, and he trusted neither.
-
-The boarding announcement came through the speakers, and Stephen and Sanchez got into the line. Maxwell stood aside and patiently waited till all the passengers had boarded. Then he put the hood over his head, swiftly moved to the gate and took his seat a few rows ahead of them, taking extreme measures to avoid coming to their notice.
+The boarding announcement came through the speakers, and Stephen and Sanchez got into the line. Maxwell waited until they had gone through, then boarded among the last and walked with his head down to his seat near the front. He did not look back. Somewhere behind him were the two people he had crossed Europe to follow.
 
 As the plane climbed away from Zurich, it occurred to him that he was going to Lisbon with no plan, no support and no powers of any kind. He was sure of one thing only. The man she had robbed did not give up, and wherever he was this morning, he would soon be reading the same departures board.
 
@@ -802,11 +786,11 @@ As the plane climbed away from Zurich, it occurred to him that he was going to L
 
 ### 4:00 AM, Thursday 17th April 2014, Helsingør, Denmark
 
-The loud chime of the phone ruffled the quietness of the night and woke Benedikt on the sofa of his suite. It was the first time he had slept with some peace since Sanchez disappeared, but the phone refused to give up. He vaguely looked around for it and found it between the cushions. He fumbled, and after a few attempts succeeded in hitting the answer button and responded with a gravelly voice.
+The phone woke Benedikt on the sofa of his suite. It was the first proper sleep he had had since Sanchez disappeared, but the phone would not stop. He found it between the cushions and answered.
 
-“Chief, it’s me. I’ve got something for you.” There was a spark of excitement in Damian’s voice.
+“Chief, it’s me. I’ve got something for you.”
 
-“Go on.” Benedikt’s senses were alert, and he reached to switch on the lights.
+“Go on.” Benedikt reached to switch on the lights.
 
 “The CCTV at Zurich station caught her getting off the night train at twenty past four yesterday morning. Trevor was on that train too. The way he went after her to the exit, I’d say he was following her.”
 
@@ -816,27 +800,25 @@ The loud chime of the phone ruffled the quietness of the night and woke Benedikt
 
 Benedikt was wide awake by now. “Whom does the BMW belong to?”
 
-“Russ is working on it. We should have it by the morning.”
+“Russ is working on it. Without the whole plate it means going through every BMW of that kind in the canton, and we will need someone in the registry to do it for us. We should have it by the morning, if it can be had.”
 
 Benedikt looked at his watch. It was a few minutes past four. “I am leaving now. I will be in Zurich by seven.”
 
 He ended the call, picked up his travel bag and tapped another number on his phone. “Get the jet ready at Kastrup. I will be there in forty-five minutes. Also, get the route and clearance for Zurich.”
 
-As Benedikt walked out of the lobby, a cold wave of wind sent shivers through his spine, taking him by surprise, and his tiredness faded away in a flash. His mind was in constant battle with his predicaments. This was his chance to salvage the situation, to confront Sanchez and to answer some questions he had not yet dared to ask himself. At Kastrup the crew had to be called from their beds, and it was nearly seven before he was in the air.
+As Benedikt walked out of the lobby, the cold wind off the Sound woke him properly. This was his chance to salvage the situation, to confront Sanchez and to answer some questions he had not yet dared to ask himself. At Kastrup the crew had to be called from their beds, and it was nearly seven before he was in the air.
 
 * * *
 
 *Zurich Airport, 8:35 AM*
 
-It was twenty-five minutes to nine when Benedikt landed in Zurich. The business-aviation apron allowed Damian to bring his car right up to where the jet was cooling down. In a few minutes, the air stairs unfolded from the door and Benedikt started descending.
+It was twenty-five minutes to nine when Benedikt landed in Zurich. On the business-aviation apron Damian was allowed to bring his car right up to the jet. In a few minutes the air stairs unfolded, and Benedikt came down them in a dark blue double-breasted suit and an unbuttoned trench coat, with his hair brushed back and dark glasses over his eyes. The wind off the apron caught his coat.
 
-No matter what the situation or occasion was, Benedikt never got his sense of dressing wrong. He was wearing a dark blue woollen double-breasted Armani suit with a sky-blue tie, and an unbuttoned trench coat. His dark brown shoulder-length hair was brushed back, and his eyes were covered with dark glasses. The wind, coupled with the gust of air from the jet, was making his trench coat give out a surging clamour, aptly complementing his demeanour.
-
-As soon as he was on the final step, Damian lunged forward and opened the rear door of the car. Benedikt ignored the invitation and opened the passenger door instead.
+As soon as he was on the final step, Damian opened the rear door of the car. Benedikt ignored the invitation and opened the passenger door instead.
 
 “What is the update?”
 
-Damian started speaking without waiting any further. “We’ve got the car. It’s a Hertz rental, taken from this airport on Sunday afternoon in the name of Stephen Roberti.”
+“We’ve got the car,” Damian said. “Russ found a clerk at the registry who would look, and it cost us. It’s a Hertz rental, taken from this airport on Sunday afternoon. Hertz wouldn’t give me the name over the phone, so I came here and found a man on their desk who would, for another five hundred francs. Stephen Roberti.”
 
 “Roberti.” Benedikt turned the name over. “That is her name too.”
 
@@ -846,15 +828,15 @@ Damian started speaking without waiting any further. “We’ve got the car. It�
 
 Damian hesitated before he answered. “Five past seven.”
 
-Benedikt’s face turned red, and from his look anyone could guess he was on the verge of losing his cool. He looked at his watch. It was a quarter to nine. She had been here, on the other side of the same airport, while he was in the air somewhere above Germany. He tried his best to control his nerves. “Take me to the terminal.”
+Benedikt’s face turned red. He looked at his watch. It was a quarter to nine. She had been here, on the other side of the same airport, while he was in the air somewhere above Germany. “Take me to the terminal.”
 
-They were halfway round the perimeter road when his phone rang. He glanced at it without interest, but his face lit up when he saw the name. He picked it up with urgency and said, “Hold for a second.” He told Damian to stop the car and wait outside. After Damian had closed the door behind him, Benedikt continued with a gravelly voice, “So tell me what you have found.”
+They were halfway round the perimeter road when his phone rang. He glanced at it without interest, but his face lit up when he saw the name. “Hold for a second.” He told Damian to stop the car and wait outside. When the door had closed, he said, “So tell me what you have found.”
 
 Oskar Brandt did not waste words. He spoke like the analyst he had once been, as if he were reading from a file. “She has a link with TransPacific, and it is not a small one. In 2012 she was an intern at the head office in Ayr. For the second half of that year she worked in Evan Slater’s own office.”
 
 Benedikt was silent. Of all the offices in the company, she had chosen the one at the very top.
 
-Oskar continued, “With the access you gave me, I have been through what is left of her time there, the security logs and the emails. One name comes up more than once. John Patterson, a freight driver in Ayr, an old hand. My people spoke to him at his door last night. He gave them nothing, which in my experience means he has something to give. So I looked at his telephone instead. At eight minutes to six on Tuesday morning he received a call from a payphone at Copenhagen Central Station. Eight minutes after that call, he rang a number in Portugal.”
+Oskar continued, “With the access you gave me, I have been through what is left of her time there, the security logs and the emails. One name comes up more than once. John Patterson, a freight driver in Ayr, an old hand. My people spoke to him at his door last night. He gave them nothing, which in my experience means he has something to give. So I looked at his telephone instead. That cost me a friend’s goodwill at the telephone company, and I will not be able to ask him again this year. At eight minutes to six on Tuesday morning he received a call from a payphone at Copenhagen Central Station. Eight minutes after that call, he rang a number in Portugal.”
 
 “Where in Portugal?”
 
@@ -868,15 +850,15 @@ At eight minutes to six on Tuesday morning, Benedikt had been standing in his ba
 
 “It is clear.”
 
-Benedikt put the phone down and sat for a while staring into space. He had asked himself for two days why a thief who could open his briefcase would take only the money in it. Now he knew. She was no kleptomaniac and no chancer. She had sat in Evan Slater’s office, and whatever she wanted, it was TransPacific she wanted it from. He called Damian back into the car.
+Benedikt put the phone down and sat for a while without moving. He had asked himself for two days why a thief who could open his briefcase would take only the money in it. Now he knew. She was no thief and no chancer. She had sat in Evan Slater’s office, and whatever she wanted, it was TransPacific she wanted it from. He called Damian back into the car.
 
-In the terminal Damian went to the TAP Portugal desk while Benedikt stood under the departures board. It did not take long. Damian came back sweating profusely. “Two tickets to Lisbon, bought at twenty past seven this morning. Sanchez and Stephen Roberti.”
+In the terminal Damian went to the TAP Portugal desk while Benedikt stood under the departures board. The girl at the desk would tell him nothing, and it was a baggage handler on his cigarette break, with an envelope in his pocket, who at last looked it up for him. Damian came back sweating. “Two tickets to Lisbon, bought at twenty past seven this morning. Sanchez and Stephen Roberti.”
 
 Benedikt was already looking at the board. Halfway down it, beside the early flight to Lisbon, were two words. *Departed 08:12.*
 
-He could not hold himself back. “I was this close to her.” The people nearest him turned to look, and he lowered his voice. “Get me to the jet. We are flying to Lisbon.”
+“I was this close to her.” The people nearest him turned to look, and he lowered his voice. “Get me to the jet. We are flying to Lisbon.”
 
-On the way back to the apron he dialled another number and patiently waited for the person to respond. The phone kept ringing. He tried three more times, and on the fourth attempt it was answered.
+On the way back to the apron he dialled another number. The phone kept ringing. He tried three more times, and on the fourth it was answered.
 
 “Sorry, Chief. The phone was on silent, and since last night I…”
 
@@ -884,11 +866,11 @@ Benedikt interrupted him. “I am not interested in your story, Francisco. I wan
 
 “No, Chief.”
 
-The jet was waiting for him, but it was not ready. The pilot explained, with clear signs of hesitation, that it needed fuel and a new slot, and that the earliest he could promise was half past ten. Benedikt did not argue with the pilot, as it would get him to Lisbon no sooner.
+The jet was waiting for him, but it was not ready. The pilot explained, uneasily, that it needed fuel and a new slot, and that the earliest he could promise was half past ten. Benedikt did not argue with the pilot, as it would get him to Lisbon no sooner.
 
-As Damian opened the door, Benedikt announced unceremoniously, “You are coming with me.”
+As Damian opened the door, Benedikt said, “You are coming with me.”
 
-Damian did not look surprised, and followed him up the stairs. For the next hour and a half they sat in the cabin with the door open to the cold, while the fuel bowser came and went. Benedikt looked at his watch more times than he could count. His seniors had given him until the end of the week to bring the matter to a close. Besides, from Monday he had to be in Tallinn to meet the Russian delegates, and on Wednesday the ship would sail with Sub Rosa in her hold, which could not be compromised at any cost. A girl who had worked in Evan Slater’s office was now on her way to Portugal with photographs of his map, and he was sitting on a runway in Switzerland.
+Damian did not look surprised, and followed him up the stairs. For the next hour and a half they sat in the cabin with the door open to the cold, while the fuel bowser came and went. Benedikt looked at his watch again and again. His seniors had given him until the end of the week to bring the matter to a close. Besides, from Monday he had to be in Tallinn to meet the Russian delegates, and on Wednesday the ship would sail with Sub Rosa in her hold, which could not be compromised at any cost. A girl who had worked in Evan Slater’s office was now on her way to Portugal with photographs of his map, and he was sitting on a runway in Switzerland.
 
 * * *
 
@@ -896,11 +878,11 @@ Damian did not look surprised, and followed him up the stairs. For the next hour
 
 The jet was about to leave Zurich when Benedikt’s phone rang. From the ringtone, he knew it was Evan Slater. He waved at Damian to leave the cabin. It was the second time that morning Damian had been sent away, and Benedikt saw him disappear into the lavatory.
 
-Benedikt’s face turned pale as Mr Slater went on with a monologue. After listening for a while, he cut in. “I will get her this time. My people are waiting at Lisbon Airport. I should have an update for you in the next couple of hours.”
+Mr Slater talked, and Benedikt listened. At last he cut in. “I will get her this time. My people are waiting at Lisbon Airport. I should have an update for you in the next couple of hours.”
 
 The voice on the other side was tight and clipped. “Benedikt, your time is running out. You have taken far too long over this. I am asking you again. Do you need help?”
 
-“I have it under control.” It was hard not to notice the frustration in his gruff tone.
+“I have it under control.”
 
 “Have you found out anything more about her? This Rita?”
 
@@ -912,89 +894,91 @@ Benedikt had the answer in his pocket. “Nothing yet.”
 
 “This is your last chance, Benedikt. After this I put my own men on it, and there will be no exceptions. I hope I have made myself clear.”
 
-“Yes.” He forced it out with a great deal of reluctance, and the line was cut.
+“Yes.” The line was cut.
 
-Benedikt put the phone away. It was the second time in three days he had kept her name from Evan Slater, and this time he had lied outright, knowing she had worked in his office. He could not have said why he had done it, for a woman who had drugged him and robbed him and made him look like a rookie in front of his seniors. That frightened him more than anything Mr Slater had said.
+Benedikt put the phone away. It was the second time in three days he had kept her name from Evan Slater, and this time he had lied outright, knowing she had worked in his office. He had done it for a woman who had drugged him and robbed him and made him look like a rookie in front of his seniors. He knocked on the lavatory door for Damian and told the pilot they could go.
 
 ## Chapter 16
 
 ### 10:00 AM, Thursday 17th April 2014, Lisbon, Portugal
 
-Sanchez looked down from the window as the plane circled above the estuary, waiting for its turn to land amongst the spring tourists and the Easter crowds. The skies were clear and the mid-morning sun was shining with brilliance. She could see the rows of houses arranged like pearls on a string, appearing exquisite and serene from above. The plane started descending. The landing was uneventful, and as it was taxiing, the flight attendant’s voice rattled the quiet cabin. Although Stephen was awake, he kept his eyes closed, trying to get whatever respite he could before their next tribulation, but the speakers were not helping the cause. The plane came to a halt and the passengers started disembarking. Stephen and Sanchez got off with great caution. Their vigilant eyes were looking at people with suspicion, attempting to spot any goons before the goons spotted them.
+Sanchez looked down from the window as the plane circled above the estuary, waiting for its turn to land amongst the spring tourists and the Easter crowds. The sky was clear and the mid-morning sun was bright on the water, and the white houses climbed the hills in rows. Stephen was awake but kept his eyes closed, trying to get what rest he could. The landing was uneventful. When they got off, they watched every face in the jet bridge and the corridor, hoping to spot any of Benedikt’s men before they were spotted.
 
-There was no passport control, for the flight had come from inside Schengen, and so the only thing between them and the arrivals hall was the baggage reclaim. The airport map was engrained in their heads. There were restrooms beside the baggage belts, and they headed straight to them. They remained there for a good twenty minutes, and when they came out, they donned a different look. Sanchez’s head was covered with a headscarf, and a niqab concealed her face from her nose down. A black veil masked her forehead and a full-length black abaya covered her from her shoulders to the floor. She appeared a little stout, mostly because of the extra padding of clothes she had worn beneath it. Stephen sported a moustache. He wore a wide-brimmed hat and walking boots, and on the straps of his rucksack hung a scallop shell, the badge of the pilgrims who walk the Portuguese Way from Lisbon to Santiago de Compostela. Stephen was a well-built young man, and with his boots and his shell he looked like any one of the pilgrims who set out from the city every spring.
+There was no passport control, for the flight had come from inside Schengen, and so the only thing between them and the arrivals hall was the baggage reclaim. They had learned the airport plan by heart. There were restrooms beside the baggage belts, and they went straight to them. They stayed there for a good twenty minutes, and when they came out, they looked like different people. Sanchez’s head was covered with a headscarf, and a niqab concealed her face from her nose down. A black veil masked her forehead and a full-length black abaya covered her from her shoulders to the floor. She appeared a little stout, mostly because of the extra padding of clothes she had worn beneath it. Stephen wore a moustache. He wore a wide-brimmed hat and walking boots, and on the straps of his rucksack hung a scallop shell, the badge of the pilgrims who walk the Portuguese Way from Lisbon to Santiago de Compostela. Stephen was a well-built young man, and with his boots and his shell he looked like any one of the pilgrims who set out from the city every spring.
 
-The car chase in Zurich had made Sanchez overcautious, and the disguise was her idea. The abaya was already with her, as part of her alternative plan to escape from Copenhagen. The hat, the shell and the moustache she had bought in Zurich the afternoon before, while Stephen kept watch on the street. That evening, in the kitchen of the flat above Walenstadt, he had cut her waist-long hair to her shoulders with the kitchen scissors. He had done it slowly and with great care, and she had tried not to look at the long brown hair on the floor. It had hurt her more than she had expected.
+The car in Zurich had made Sanchez cautious, and the disguise was her idea. The abaya was already with her, as part of her alternative plan to escape from Copenhagen. The hat, the shell and the moustache she had bought in Zurich the afternoon before, while Stephen kept watch on the street. That evening, in the kitchen of the flat above Walenstadt, he had cut her waist-long hair to her shoulders with the kitchen scissors. He had done it slowly and with great care, and she had tried not to look at the long brown hair on the floor. 
 
-They took different paths and headed to the metro. As they passed through the arrivals hall, Sanchez’s incisive eyes noticed a corpulent man in a checked shirt at the barrier who, with a few of his companions, was guarding the exit path. Each of them held a photograph, and the manner in which they were scrutinising each passer-by made Sanchez believe they were there for a purpose. She went past them without raising any alarm. Stephen was ahead of her, and he also succeeded in concealing himself from their prying eyes.
+They took different paths and headed to the metro. As they passed through the arrivals hall, Sanchez noticed a stout man in a checked shirt at the barrier with a few companions. Each of them held a photograph, and they were looking hard at every passenger who came through. She walked past them. Stephen was ahead of her, and they let him pass too.
 
-Their plan was to meet at Praça do Município, by the City Hall. They chose not to be in the same carriage, and both changed to the green line at Alameda without any mishap. Sanchez got off at Baixa-Chiado, while Stephen stayed on for one more stop to Cais do Sodré. Once off the train, Sanchez headed straight to the ladies’ room. She took off the abaya and the veil, folded them into her bag and came out in jeans and a light jacket, with a plain black headscarf over her newly short hair.
+Their plan was to meet at Praça do Município, by the City Hall. They chose not to be in the same carriage, and both changed to the green line at Alameda. Sanchez got off at Baixa-Chiado, while Stephen stayed on for one more stop to Cais do Sodré. Once off the train, Sanchez headed straight to the ladies’ room. She took off the abaya and the veil, folded them into her bag and came out in jeans and a light jacket, with a plain black headscarf over her newly short hair.
 
-She walked down towards the square. It was nearly eleven in Lisbon. The sunshine was warm, and a breeze came up from the river. The City Hall stood on one side of the square, a grand neoclassical building rebuilt after a fire in the century before last, and tourists were flocking around it, taking every chance to capture the moment with their cameras and smartphones. Throughout the walk, she was vigilant. So far, she hadn’t found anything out of the ordinary, but her mind was fretful, thinking about the man in the checked shirt. She knew they must leave Lisbon at the earliest possible time. Contemplating her choices, she sauntered across the street to a coffee shop, took a table with a view of the square, sipped her coffee and waited for her brother.
+She walked down towards the square. It was nearly eleven in Lisbon. The sunshine was warm, and a breeze came up from the river. The City Hall stood on one side of the square, a grand neoclassical building rebuilt after a fire in the century before last, and tourists were photographing it. She had seen nothing out of the ordinary on the way, but she kept thinking about the man in the checked shirt. They had to leave Lisbon as soon as they could. She crossed the street to a coffee shop, took a table with a view of the square, sipped her coffee and waited for her brother.
 
 About ten minutes later she saw Stephen come up from the waterfront, his eyes searching the crowd around the square. She left the coffee shop, came up behind him and tapped him on the shoulder. He turned around, startled, and saw her standing there.
 
-Sanchez greeted him with glee as she hugged him. To passers-by it appeared as if two lovers were meeting before a long parting, the pilgrim saying goodbye to his girl before the walk north. The charade was an important part of their plan, for if the goons were still hiding in stealth, they would not consider them a threat. After a few minutes of pretence, it was time for them to leave the place. Sanchez looked towards Stephen and asked in a low tone, “Did you notice the stout man in the checked shirt at the airport?”
+She hugged him. To passers-by they looked like two lovers meeting before a long parting, the pilgrim saying goodbye to his girl before the walk north, and that was the idea, for nobody hunting a brother and sister would look twice at them. After a few minutes of it they walked away together, and Sanchez asked quietly, “Did you notice the stout man in the checked shirt at the airport?”
 
-Stephen was trying hard to match her pace. “I noticed him. I wasn’t alarmed, though, because he was looking the other way. The disguise worked. After all, it was your idea to wear these fancy clothes.” He almost chuckled as he said those words.
+Stephen was trying hard to match her pace. “I noticed him. He was looking the other way. The disguise worked. It was your idea to wear these fancy clothes, after all.” He almost chuckled.
 
-“That isn’t the point. What worries me is that despite everything, they knew which plane we were on. We have been lucky to escape them so far, but if we carry on like this, we will soon run out of luck.” She was breathless as she hurried through the cobbled streets.
+“That isn’t the point. What worries me is that despite everything, they knew which plane we were on. We have been lucky so far, but if we carry on like this, our luck will run out.” She was breathless as she hurried through the cobbled streets.
 
 “I agree. We’re making it way too easy for them. We’ve used our own names for the car, the flat and the plane, and these people can get at any of it. We need to travel without anyone knowing who we are.”
 
-Sanchez looked around as she crossed the street and continued, “You have a point. From now on, no more tickets in our names, and no more names out loud either. Not in shops, not in taxis, not anywhere. Let us get to Nazaré first, without any more trouble, and then we will think about the rest.”
+Sanchez looked around as she crossed the street. “You have a point. From now on, no more tickets in our names, and no more names out loud either. Not in shops, not in taxis, not anywhere. Let us get to Nazaré first, without any more trouble, and then we will think about the rest.”
 
-Stephen was famished, and he made no secret of it. The past few days had been nothing but waiting in the flat and grabbing whatever came their way. Though he could see she was right, with clear hesitation in his tone, he tried to put his point forward. “Should we eat lunch before we head for Nazaré?”
+Stephen was famished, and he made no secret of it. For days they had eaten whatever came their way. He could see she was right, but he tried anyway. “Should we eat lunch before we head for Nazaré?”
 
-Sanchez rolled her eyes. She stopped walking, and her hands came and rested on her hips. “Stephen! At any moment those men could be here. Soon they will know we dodged them, and sooner or later they will guess that we took the metro into the centre. I know you are starving, but you have to wait for a few more hours. I am sorry.”
+Sanchez stopped walking and put her hands on her hips. “Stephen! At any moment those men could be here. Soon they will know we dodged them, and sooner or later they will guess that we took the metro into the centre. I know you are starving, but you have to wait for a few more hours. I am sorry.”
 
 Stephen gave it a final try. “What if we go down to the waterfront? There are so many restaurants there, and they could hardly find us.”
 
-This time Sanchez had a smile on her face. “You are too trusting. They will not hunt for us in the eateries, but they will surely watch the ways out of the city. Let us not waste time.”
+This time Sanchez smiled. “You are too trusting. They will not hunt for us in the eateries, but they will surely watch the ways out of the city. Let us not waste time.”
 
-Stephen lost the battle and with dropped shoulders followed her, disgruntled and hungry.
+Stephen gave up and followed her, still hungry.
 
-It took them a short ride on the blue line to reach the coach station at Sete Rios. The place was busy with Easter travellers, and all its signs were in Portuguese. Fortunately for her, Portuguese was her third language, picked up easily over the summers with her Galician grandmother in Vigo. The next coach to Nazaré was in thirty minutes, something she had dreaded. Sanchez was nervous. She had a wild hunch that the men from the airport would come looking for them at any moment, and thirty minutes was long enough for anyone to make up for lost time.
+It took them a short ride on the blue line to reach the coach station at Sete Rios. The place was busy with Easter travellers, and all its signs were in Portuguese. Portuguese was her third language, picked up over the summers with her Galician grandmother in Vigo. The next coach to Nazaré was in thirty minutes, and Sanchez was nervous. Thirty minutes was long enough for the men from the airport to catch up.
 
-She was weighing her options when a young boy interrupted her thoughts. With a sharp accent, he asked in Portuguese, “Quer transporte privado para a Nazaré?” (“Do you want private transport to Nazaré?”)
+She was weighing her options when a young boy came up to her and asked, “Quer transporte privado para a Nazaré?” (“Do you want private transport to Nazaré?”)
 
-It appeared as if the boy was God-sent. She tried not to look overexcited, as that might result in her being overcharged. With great composure, she responded, “Depende. Quanto é que cobra?” (“It depends. How much would you charge?”)
+She tried not to look too eager, or she would be overcharged. “Depende. Quanto é que cobra?” (“It depends. How much would you charge?”)
 
-The boy’s face brightened, and he led her to the other side of the station. There were a dozen private vans parked in a narrow, crowded yard, and a man in his early thirties guarded a small booth by the entrance. The boy rushed into the booth, gave him a brief commentary and pointed at Sanchez.
+The boy led her to the other side of the station. A dozen private vans were parked in a narrow, crowded yard, and a man in his early thirties sat in a small booth by the entrance. The boy ran into the booth, spoke to him and pointed at Sanchez.
 
 The man grinned. “200 euros. Muito barato.” (“200 euros. It is cheap.”)
 
-Given the danger that was looming over their heads, it was a sweet deal, but she gave a gentle push to see if she could bring the price lower. “Muito caro. Só posso pagar 150 euros.” (“Too costly. I can only pay 150 euros.”)
+It was a fair price for what they needed, but she tried to bring it lower. “Muito caro. Só posso pagar 150 euros.” (“Too costly. I can only pay 150 euros.”)
 
-The man pondered for a while and finally stated, “Então tem de partilhar a carrinha.” (“Then you have to share the van with others.”)
+The man thought for a while. “Então tem de partilhar a carrinha.” (“Then you have to share the van with others.”)
 
-Sanchez was in no mood to take any risk. She made a counter-offer of 170 euros, paid in cash, and the deal was done without anyone asking for a name.
+Sanchez did not want strangers in the van. She offered of 170 euros, paid in cash, and the deal was done without anyone asking for a name.
 
-Within five minutes they were in the back of a white van with tinted windows. As the driver edged out of the yard, Sanchez looked into the side mirror and her heart sank. A man was walking slowly along the line of parked vans, stopping at each one to look in through the windows. He had a photograph in his hand, and she had seen him an hour before, at the barrier in the arrivals hall, beside the man in the checked shirt. He reached the van that had been parked behind theirs and bent to peer inside. Sanchez turned her face away from the glass. The van swung out into the traffic, and when she dared to look again, the yard was gone, and she had no way of knowing whether he had seen them.
+Within five minutes they were in the back of a white van with tinted windows. As the driver edged out of the yard, Sanchez looked into the side mirror. A man was walking slowly along the line of parked vans, stopping at each one to look in through the windows. He had a photograph in his hand, and she had seen him an hour before, at the barrier in the arrivals hall, beside the man in the checked shirt. He reached the van that had been parked behind theirs and bent to peer inside. Sanchez turned her face away from the glass. The van swung out into the traffic, and when she dared to look again, the yard was gone, and she had no way of knowing whether he had seen them.
 
 ## Chapter 17
 
 ### 10:00 AM, Thursday 17th April 2014, Lisbon Airport, Portugal
 
-Maxwell was one of the first passengers off the plane. He had taken a seat a few rows ahead of the Robertis for this very moment, for he meant to be in the arrivals hall before them and to watch them come out. There was no passport control, as the flight had come from inside Schengen, and he had no luggage but the bag on his shoulder. He walked straight through the baggage hall, past the belts and the restrooms, and out through the sliding doors into the main terminal. Lisbon airport was bustling with travellers, mostly tourists. It was Holy Week, and half of Europe seemed to have chosen Portugal for Easter.
+Maxwell was one of the first passengers off the plane. He had asked for a seat near the front for this very moment, for he meant to be in the arrivals hall before them and to watch them come out. There was no passport control, as the flight had come from inside Schengen, and he had no luggage but the bag on his shoulder. He walked straight through the baggage hall, past the belts and the restrooms, and out through the sliding doors into the main terminal. The airport was crowded. It was Holy Week, and half of Europe seemed to have chosen Portugal for Easter.
 
 He saw Francisco at the barrier at once, an old acquaintance from other people’s files, with his men and their photographs spread along it. Francisco was a heavy man in a checked shirt and a close accomplice of Benedikt’s in Lisbon, and Maxwell had no doubt whose face was in the photographs.
 
-Maxwell knew he had little time to stop her from walking out into Francisco’s arms. He walked back towards the baggage hall, and as soon as he was out of sight of Francisco’s men, he ran. It meant revealing himself to Sanchez, but that was the least of his worries.
+Maxwell knew he had little time to stop her from walking out into Francisco’s arms. He walked back towards the baggage hall, and as soon as he was out of sight of Francisco’s men, he ran. It meant showing himself to Sanchez, but that could not be helped.
 
-A young officer of the airport police was guarding the doors from the baggage hall. She saw a man running towards her against the flow of passengers and sprang to her feet with her hand on her holster. Maxwell swiftly showed her his identity card and had a quick, urgent word with her. The card gave him no powers in Portugal, and he knew it, but it carried a crest and he spoke with conviction. She let him through.
+A young officer of the airport police was guarding the doors from the baggage hall. She saw a man running towards her against the flow of passengers and put her hand on her holster. Maxwell showed her his identity card and spoke to her quickly. The card gave him no powers in Portugal, and he knew it, and so did she. She would not let him through alone. She radioed her sergeant, and three minutes went by before she walked him in herself, one hand still near her belt.
 
-The bags were still pouring onto the belt for the Zurich flight. He scanned the crowd around it, then the other belts, then the queue for the lost-luggage desk, but there was no trace of them. He felt cold. He went back out to the waiting area, where he was relieved to see Francisco still at the barrier, still waiting, and he stood near it and watched every young woman who came through.
+The bags were still pouring onto the belt for the Zurich flight. He scanned the crowd around it, then the other belts, then the queue for the lost-luggage desk, but there was no trace of them. The officer walked him back out to the waiting area and left him there. He was relieved to see Francisco still at the barrier, and he stood near it and watched every young woman who came through.
 
 “How is this possible? Have I missed them?” he mumbled. He knew he couldn’t have missed them unless they had never left the plane, or unless they had walked out under his nose as somebody else.
 
-His options were running out, and he decided to ask for help. At the airport police office he showed his card once more and asked for the officer in charge. It was five minutes before a heavy-set man with grey hair appeared. Maxwell said, “Two British passengers who arrived from Zurich this morning may be in danger. Their names are Sanchez and Stephen Roberti. I need to know whether they have left the building.”
+He decided to ask for help. At the airport police office he showed his card once more and asked for the officer in charge. It was five minutes before a heavy-set man with grey hair appeared. Maxwell said, “Two British passengers who arrived from Zurich this morning may be in danger. Their names are Sanchez and Stephen Roberti. I need to know whether they have left the building.”
 
 The officer looked at the card in an unhurried way. “We have some rules here. This card does not give you any authority in Portugal, as I am sure you know.”
 
 “I know. I am asking you as a favour.”
 
-The officer considered him for a while, and then said in a softer tone, “As a favour, then. Come.”
+The officer looked at him for a while. Then he asked for the name of someone in the Portuguese police who would speak for him, and Maxwell gave him the number of the friend who was waiting outside with a car. The officer went into his office and closed the door, and it was twenty minutes before he came out again.
+
+“As a favour, then,” he said. “I will show you the cameras. I will tell you nothing about passengers, and you did not see this. Come.”
 
 In a small room behind the office, a young policeman ran the recordings from the baggage hall on a bank of screens. Maxwell saw Sanchez and Stephen come off the plane among the first passengers, walk past the belts without stopping and go straight into the restrooms beside them. He watched the doors for a long time. They did not come out.
 
@@ -1002,59 +986,59 @@ After a while, the officer leaned towards the screen and tapped it with his pen.
 
 Maxwell stared at the screen. The woman in the abaya walked slowly with her head bowed, and the pilgrim with his scallop shell walked a little ahead of her, as though they had never met. The young policeman found them again on the arrivals camera. They passed within a few feet of Francisco and his photographs, and neither of them so much as turned a head. Then they went down the stairs to the metro. By the clock on the screen, it had happened a few minutes after he had left the baggage hall, while he stood watching the barrier for a girl in jeans.
 
-Maxwell thanked the officers and walked back to the waiting area. Francisco and his men were still at the barrier, still studying their photographs. Sanchez had outsmarted not only Benedikt’s goons but him as well. He bought a coffee, found a table from where he could watch the barrier, and waited to see what Francisco would do next.
+Maxwell thanked the officers and walked back to the waiting area. Francisco and his men were still at the barrier, still studying their photographs. Sanchez had outwitted not only Benedikt’s men but him as well. He bought a coffee, found a table from where he could watch the barrier, and waited to see what Francisco would do next.
 
-He did not have long to wait. At about a quarter past eleven, he saw Francisco huddling with his men. From his frantic appearance, it was evident he had learned that the girl was not coming. Soon Francisco’s men spread out in different directions. A couple of them went towards the metro station, a few rushed to the taxi rank, and Francisco, with two of his accomplices, headed to the baggage hall. It took him a while to convince the officer at the doors before he got in. A few minutes later he came back to the waiting area, flummoxed, and Maxwell could not resist a smile. Then Francisco dashed towards the departures level. A black Mercedes van was waiting for him at the kerb. Soon he disappeared behind the sliding door.
+He did not have long to wait. At about a quarter past eleven, he saw Francisco huddling with his men, and by the way he waved his arms he had learned that the girl was not coming. Soon Francisco’s men spread out in different directions. A couple of them went towards the metro station, a few rushed to the taxi rank, and Francisco, with two of his men, headed to the baggage hall. The officer at the doors would not let him in at all, and after a long argument he came back to the waiting area red in the face. Maxwell allowed himself a smile. Then Francisco dashed towards the departures level. A black Mercedes van was waiting for him at the kerb. Soon he disappeared behind the sliding door.
 
-Maxwell hurried after him, but with caution. Before boarding in Zurich, he had rung a friend from a Europol course, an officer of the Lisbon police who was off duty for the Easter holiday, and asked him for a car and no questions. The friend had asked none. Maxwell tapped a number on his phone, and within a minute a small saloon drew up at the departures kerb, two cars behind the van. He took the seat beside the driver.
+Maxwell followed him at a distance. Before boarding in Zurich, he had rung a friend from a Europol course, an officer of the Lisbon police who was off duty for the Easter holiday, and asked him for a car and no questions. The friend had asked none. Maxwell tapped a number on his phone, and within a minute a small saloon drew up at the departures kerb, two cars behind the van. He took the seat beside the driver.
 
 “Follow the black van,” he said. “Not too close.”
 
-The officer nodded and pulled out into the traffic without a word. Maxwell kept his eyes on the van. He had no clue where it was going, but he was certain of one thing. A man like Francisco, who had lost the girl, would not be driving anywhere in such a hurry unless it was to face the man who had sent him.
+The officer nodded and pulled out into the traffic without a word. Maxwell kept his eyes on the van. He did not know where it was going, but he was certain of one thing. A man like Francisco, who had lost the girl, would not be driving anywhere in such a hurry unless it was to face the man who had sent him.
 
 ## Chapter 18
 
 ### 11:35 AM, Thursday 17th April 2014, the A5, west of Lisbon, Portugal
 
-Francisco was enraged. The black van was already on the A5, running west along the coast towards the aerodrome at Tires, and he still couldn’t fathom how the girl had evaded him. For the first hour at the barrier he had presumed she had never boarded the plane. But when a friend at the airline confirmed that both names had been on the flight from Zurich, his last hope vanished.
+Francisco was furious. The black van was already on the A5, running west along the coast towards the aerodrome at Tires, and he still could not understand how the girl had got past him. For the first hour at the barrier he had assumed she had never boarded the plane. Then a cousin who loaded bags for the airline, and who expected to be paid for it, had looked at a manifest he should not have seen and told him that both names had been on the flight from Zurich.
 
-“How is this possible? I was right there and I checked every passenger who came through!” His voice reflected deep frustration, and the driver kept his eyes on the road. His men were at the metro, the taxi ranks, the coach stations at Sete Rios and Oriente, and the hotels near the airport. The chief would land at Tires in forty minutes. Though he was not required to receive him, he had decided otherwise. He wanted to be the first person to give him the bad news.
+“How is this possible? I was right there and I checked every passenger who came through!” The driver kept his eyes on the road. His men were at the metro, the taxi ranks, the coach stations at Sete Rios and Oriente, and the hotels near the airport. The chief would land at Tires in forty minutes. Nobody had asked Francisco to meet him, but he wanted to be the one who gave him the bad news.
 
-It was a little after noon when they reached Tires. The handling agent knew the van and let it through the gate onto the apron, where it parked beside the small glass building of the executive terminal. Francisco went through the swinging doors and approached the lady at the reception desk. He gave her the tail number and enquired about the arrival. The plane was in the vicinity and about to land. He marched back out to the apron.
+It was a little after noon when they reached Tires. The handling agent knew the van and let it through the gate onto the apron, where it parked beside the small glass building of the executive terminal. Francisco went through the swinging doors and gave the lady at the reception desk the tail number. The plane was about to land. He went back out to the apron.
 
-The man he had sent along the vans at Sete Rios had rung to say he had looked into every one of them and seen nothing but families and pilgrims. How Francisco wished he could get hold of her before Benedikt landed.
+The man he had sent along the vans at Sete Rios had rung to say he had looked into every one of them and seen nothing but families and pilgrims. 
 
-At a quarter past twelve the jet touched down with a screeching reverberation, a few hundred metres away from him, and Francisco nearly jumped out of his skin. He got back into the van and instructed the driver to move closer to where the jet would soon be parked.
+At a quarter past twelve the jet touched down a few hundred metres away from him. He got back into the van and told the driver to move closer to where the jet would soon be parked.
 
-The jet came to a halt on its stand and slowly the engine noise receded. The stairs unfolded, and within a minute Benedikt appeared at the top of them. Following him was Damian, carrying a small bag. Benedikt was wearing a dark pair of glasses, which concealed any trickle of emotion from prying eyes. His strong demeanour made Francisco squirm, and beads of sweat rolled down his temple. He had no clue how to announce the news.
+The jet stopped on its stand, and the engines died away. The stairs unfolded, and within a minute Benedikt appeared at the top of them. Following him was Damian, carrying a small bag. Benedikt was wearing dark glasses. Francisco felt the sweat on his temple. He did not know how to begin.
 
 Benedikt came straight to the point. “Did we not agree to meet at our usual place? I hope you do not have any bad news to announce.”
 
-Francisco’s throat went dry, and for some miserable long seconds he failed to speak. With great difficulty, he found his lost voice. “Chief, we lost her. I was at the airport myself and I looked at every passenger. I don’t know how we missed her. I…”
+Francisco’s throat went dry, and for a few seconds he could not speak. “Chief, we lost her. I was at the airport myself and I looked at every passenger. I don’t know how we missed her. I…”
 
-Benedikt interrupted him, and Francisco’s voice trailed into nothing. He was gazing at the ground. He had no courage left to face his boss.
+Benedikt raised a hand, and Francisco’s voice trailed into nothing. He looked at the ground.
 
-Benedikt’s rage was plain in his voice. “I gave you one job, Francisco. I told you how important this was to me. A girl of twenty slips from right under your nose, and all you can offer me is the news of her disappearance. Shame on you. I am better off without the lot of you.”
+“I gave you one job, Francisco. I told you how important this was to me. A girl of twenty slips from right under your nose, and all you can offer me is the news of her disappearance. Shame on you. I am better off without the lot of you.”
 
-Francisco mustered some courage and said in a low tone, “I have my men at all the city exits. If they are in Lisbon, they will be caught.”
+Francisco said quietly, “I have my men at all the city exits. If they are in Lisbon, they will be caught.”
 
 Benedikt threw his hands in the air. “I do not want anything more from you. Do me a favour and stay out of it. Will you?”
 
-He pulled out his phone and dialled a number. The call was answered promptly, and he walked away across the apron as he spoke. Soon he was far away, and Francisco could barely hear a word.
+He pulled out his phone, dialled a number and walked away across the apron as he spoke, too far for Francisco to hear a word.
 
-Francisco was left alone with Damian. With great effort, he managed to glance at him. Damian greeted him with a tight-lipped smile and broke the long silence between the two. “I know it’s bad. But if it helps, this girl has fooled all of us, the chief included. We’ve been chasing her for three days, and she’s slipped us every time. She’s no ordinary girl. She’s trained, and she knows exactly what she’s doing. He’s angry now, but he’ll come round.” Damian squeezed Francisco’s shoulder as he finished. Francisco didn’t say anything, but gave a grateful smile, appreciating his friend’s solicitude.
+Francisco was left alone with Damian. At last he looked up, and Damian gave him a tight-lipped smile. “I know it’s bad. But if it helps, this girl has fooled all of us, the chief included. We’ve been chasing her for three days, and she’s slipped us every time. She’s no ordinary girl. She’s trained, and she knows exactly what she’s doing. He’s angry now, but he’ll come round.” Damian squeezed Francisco’s shoulder. Francisco said nothing, but he was grateful.
 
-It took Benedikt some time to finish the conversation. When he walked back to where Francisco and Damian were standing, he looked more composed than he had a few moments before. “Did your men find anything?” His voice was flat, and there was no trace of the frustration he had shown.
+It took Benedikt some time to finish the conversation. When he walked back to where Francisco and Damian were standing, he looked more composed than he had a few moments before. “Did your men find anything?” His voice was flat.
 
-Francisco responded in haste, “Nothing so far, Chief. The exits are covered. They will call me as soon as they find something.”
+Francisco answered quickly, “Nothing so far, Chief. The exits are covered. They will call me as soon as they find something.”
 
-Benedikt continued, “They must be in disguise. I am positive that is how they escaped you. Tell your men to look under the skin. They will not look the way they appear in the photograph.” Francisco realised Damian had been right on both counts. The chief had calmed down, which was a big relief, and this girl was no ordinary girl. He stepped aside and called his men, passing on in Portuguese what his chief had told him.
+“They must be in disguise,” Benedikt said. I am positive that is how they escaped you. Tell your men to look under the skin. They will not look the way they appear in the photograph.” Francisco saw that Damian had been right on both counts. He stepped aside and called his men, passing on in Portuguese what his chief had told him.
 
 When he came back, Benedikt was looking out past the end of the runway, towards the north. “I have laid a plan,” he said. “If she takes the bait, we may have a long night. In the meantime, let us get some rest.”
 
-They all climbed into the van, and the driver took the A5 back towards the bridge and the house on the south bank. Benedikt reclined his seat and closed his eyes. The silence in the van was broken by the ringing of his phone, and Benedikt came to complete attention. He listened keenly without uttering a single word. The call went on for five minutes, and Francisco, sitting in front, heard nothing of the other side. At last Benedikt said, “Good. Give her some time. By this evening she will see sense. When the girl rings, I want to know within the minute.”
+They all climbed into the van, and the driver took the A5 back towards the bridge and the house on the south bank. Benedikt reclined his seat and closed his eyes. After a while his phone rang, and he sat up. He listened without saying a word. The call went on for five minutes, and Francisco, sitting in front, heard nothing of the other side. At last Benedikt said, “Good. Give her some time. By this evening she will see sense. When the girl rings, I want to know within the minute.”
 
-He ended the call and lay back on the seat. Francisco turned the words over in his head for the rest of the drive. The girl was the one they had lost, and so the woman who was to be given time was somebody else. He had no clue who she was, or where. But for the first time that day, he saw the chief smile, and it frightened him more than his anger had.
+He ended the call and lay back on the seat. Francisco turned the words over in his head for the rest of the drive. The girl was the one they had lost, and so the woman who was to be given time was somebody else, and he did not know who she was, or where. In the mirror he saw the chief lying back with his eyes closed, and he was smiling.
 
 ## Chapter 19
 ### 12:15 PM, Thursday 17th April 2014, Cascais–Tires Aerodrome, Portugal
@@ -1081,13 +1065,13 @@ He was about to try the third key when he heard a creaking sound as if someone w
 
 Before he could do anything, he saw two people approaching the driver’s door. He could see their feet a few metres away from him. While keeping his leg looped around the exhaust, he let go with one hand and slowly slid one of the backpack straps down. The strap came off that arm after a few tries. With extreme quietness, he repeated it with the other arm, lifted the bag and held it on top of him, above the exhaust, with his hands wrapped around it.
 
-The men were talking in Portuguese. Maxwell had no clue what they were discussing, but he could make out that they were having a serious conversation. Soon he heard the unlocking beep of the van. They opened the front door. It appeared they were looking for something. Maxwell was relieved to note they weren’t taking the van away. After a few minutes they locked the van and started to walk back to the house.
+The men were talking in Portuguese. Maxwell could not follow a word of it, but he could tell it was a serious conversation. Soon he heard the unlocking beep of the van. They opened the front door. It appeared they were looking for something. Maxwell was relieved to note they weren’t taking the van away. After a few minutes they locked the van and started to walk back to the house.
 
 A loud crashing sound made Maxwell’s heart skip a few beats. One of the men had dropped the box he was carrying, and a bunch of documents fell around the van. They bent down and started collecting the scattered papers. A single sheet slid across the ground on the evening breeze and came to rest under the van, a hand’s breadth from Maxwell’s face. He stayed perfectly still and watched a pair of shoes pass within a metre of it. Fortunately for Maxwell, they spotted neither him nor the sheet. They gathered the papers in haste and hurried back inside.
 
-He was dripping with sweat from head to toe, and it was not the mild evening that had done it. He hung in his position for a few more minutes, and when everything seemed back to normal, he slipped down from the pipe and reached for the sheet.
+He was dripping with sweat from head to toe. He hung in his position for a few more minutes, and when everything seemed back to normal, he slipped down from the pipe and reached for the sheet.
 
-It was a printed page in English, and there was just enough light left to read it. At the top was a photograph of a small house standing alone at the end of a lane, with a broken picket fence in front of it. Beneath it were a name, Adriana Lobo, and an address in Fanhais, Nazaré, and a few typed lines about the woman who lived there alone. Maxwell read it twice. He had never heard of Adriana Lobo, but he could think of only one reason why a page like this would be in Benedikt’s van on the day Sanchez had vanished. Benedikt was resting, not because he had given up on the girl, but because he knew where she would go and was waiting for her to get there. Maxwell photographed the page with his phone, front and back.
+It was a printed page in English, and there was just enough light left to read it. At the top was a photograph of a small house standing alone at the end of a lane, with a broken picket fence in front of it. Beneath it were a name, Adriana Lobo, and an address in Fanhais, Nazaré, and a few typed lines about the woman who lived there alone. Maxwell read it twice. He had never heard of Adriana Lobo, but he could think of only one reason why a page like this would be in Benedikt’s van on the day Sanchez had vanished. Benedikt had not given up on the girl. He knew where she would go, and he was waiting for her to get there. Maxwell photographed the page with his phone, front and back.
 
 He found his way back to the passenger-side door, and he was shocked to see the bunch of keys hanging from the lock. They had been there the whole time, and only the fact that the men had used the driver’s door had saved him. “How could I do this?” he mumbled. Without getting too distracted by his mishap, he went back to his job. The evening shadow crowded the space, and there was hardly any movement on the street either. After about seven tries, he finally heard a snapping sound, and the door gave in to his persistence. He put the transmitter underneath the glove box in the lowermost corner. He checked it twice and ensured it was out of sight. Before he closed the door, he laid the sheet face down on the floor under the passenger seat, where anyone who missed it would think it had slipped there. Satisfied with his work, he locked the door and walked out of the area as fast as he could without raising any alarms.
 
@@ -1117,12 +1101,12 @@ Even though Sanchez had evaded him at the airport, he now had an address, and a 
 
 He had no option but to wait. He found a small motel a couple of miles north of the house and lay down on the bed fully dressed. He kept the receiver next to him, with the hope that it would wake him the moment the van inched forward.
 
-It was nearly midnight when his phone buzzed with a message from Luís. *I am here. One light upstairs, the rest dark. A dark car came down the lane twice and did not stop.* Maxwell read the message twice, and then lay awake beside the silent receiver, knowing that he was not the only one waiting for Sanchez in Nazaré.
+It was nearly midnight when his phone buzzed with a message from Luís. *I am here. One light upstairs, the rest dark. A dark car came down the lane twice and did not stop.* Maxwell read the message twice and lay awake beside the silent receiver until it was light.
 
 ## Chapter 20
 ### 8:00 PM, Thursday 17th April 2014, Nazaré, Portugal
 
-Sanchez sat on an empty wooden bench by the beach and gazed at the wide-open ocean as the sun went down into it. Across the street, Stephen was in a public phone booth calling his friend Jules, for she had given strict instructions to keep their own phones switched off. For the first time that evening, she felt a little comforted. The crashing sound of the waves was an integral part of nature’s calmness, and she was lost in it.
+Sanchez sat on an empty wooden bench by the beach and gazed at the wide-open ocean as the sun went down into it. Across the street, Stephen was in a public phone booth calling his friend Jules, for she had given strict instructions to keep their own phones switched off. She felt a little comforted. The crashing sound of the waves was an integral part of nature’s calmness, and she was lost in it.
 
 The van from Sete Rios had dropped them at the town square early in the afternoon, and she had made her famished brother take a taxi up to O Sítio, the old quarter on the cliff above the town, before she would let him near a restaurant. They had eaten a late lunch in a booth diagonally opposite the entrance, which gave her a view of everyone who came in, while a singer and two men with *guitarras portuguesas* played fado. Fado was meant to express sadness, and the version performed for the tourists hardly reflected any glumness, but it was done tastefully all the same.
 
@@ -1130,11 +1114,11 @@ Behind her the streets were swarming with people. It was Holy Week, and half of 
 
 Stephen’s close friend Jules lived near Nazaré. As part of an exchange programme, Jules had spent a semester in Ayr, and on one of his countryside walks he had come through Girbin, where he and Stephen had met and become good friends. Jules specialised in cartography. It was Stephen’s idea to take Jules’s help to decipher the map. Sanchez was sceptical in the beginning, but Stephen succeeded in convincing her, for he was certain Jules could keep secrets.
 
-She heard her name before she saw her brother. Stephen was hurrying along the promenade, looking into every face, and it was evident he had come out of the booth to find her gone and had been searching for some time. His relief lasted no longer than it took him to cross the street. “I’ve been looking for you all over the place. You could have at least told me before coming here.” His tone was a shade below screaming.
+She heard her brother before she saw him. Stephen was hurrying along the promenade, looking into every face and shouting “Hey!” and “Where are you?” into the crowd, for even in his panic he had kept to their rule about names. He had come out of the booth to find her gone and had been searching for some time. His relief lasted no longer than it took him to cross the street. “I’ve been looking for you all over the place. You could have at least told me before coming here.” His tone was a shade below screaming.
 
 Sanchez didn’t react and kept gazing at the vast openness. After a brief pause, she broke the silence. “Stephen, come and sit beside me. This place is so pristine, so beautiful. You need to experience this.”
 
-He looked away to see what his sister was trying to explain, and she watched his anger go out of him. Unlike the streets, which were swarming with visitors, there was no visible soul near the water. The only noticeable sounds were the crashing waves and the occasional cries of the seagulls. He sat beside her and with a soft tone mentioned his conversation with Jules. Jules could not get away before half past eight and had asked them to meet him at a pub nearby. The talks receded, and they kept to themselves as if agreeing to an unstated protocol to stay by the ocean for as long as time would permit.
+He looked away to see what his sister was trying to explain, and she watched his anger go out of him. Unlike the streets, which were swarming with visitors, there was no visible soul near the water. The only noticeable sounds were the crashing waves and the occasional cries of the seagulls. He sat beside her and told her quietly about his conversation with Jules. Jules could not get away before half past eight and had asked them to meet him at a pub nearby. The talks receded, and they kept to themselves as if agreeing to an unstated protocol to stay by the ocean for as long as time would permit.
 
 * * *
 
@@ -1144,7 +1128,7 @@ Sanchez was still lost in her thoughts when Stephen took the initiative to break
 
 She smiled through her crinkled eyes and followed Stephen’s lead. It was a short walk to the pub, and Sanchez was amazed at the stark difference between the two places. The ocean was so calm, whereas the pub was bustling with a raucous crowd, and loud music poured out of it every time someone opened the door. On a normal day, she would have loved the ambience, but the recent tribulations she had undergone demanded that she be more vigilant.
 
-The wait wasn’t long. Sanchez saw a six-foot-tall figure approaching them from across the street. His unkempt dark hair was flowing as he walked, and his sun-kissed skin was glowing even in the night. He shouted in joy from a distance in a full-bodied voice and hugged Stephen tightly. Jules was meeting Sanchez for the first time, but that hardly constrained him from greeting her with the same enthusiasm.
+The wait wasn’t long. Sanchez saw a six-foot-tall figure approaching them from across the street. His unkempt dark hair was flowing as he walked, and his sun-kissed skin was glowing even in the night. He shouted in joy from a distance in a full-bodied voice and hugged Stephen tightly. Jules had never met Sanchez, but that hardly stopped him from greeting her with the same enthusiasm.
 
 “Júlio,” he announced, taking her hand in both of his, “but I’ve been Jules to everyone since Ayr.” His loud, cordial demeanour took Sanchez by surprise, and it felt as if she was meeting someone she had known for a long time.
 
@@ -1158,7 +1142,7 @@ Sanchez finally spoke. “That seems like a great idea. Why didn’t it come to 
 
 Jules couldn’t resist blurting, “Irmã, that is because of Stephen’s influence. When you meet smart people like me, ideas start to flow.” They laughed their hearts out, and Sanchez knew for certain Jules could be trusted.
 
-Throughout the drive, Jules kept them entertained. He chatted without stopping, sometimes blurting out silly jokes and at times becoming a tourist guide, giving details of the places they were passing. Jules’s house was about five kilometres from the main street of Nazaré, in a village called Valado dos Frades. Sanchez could see the flat fields under a clear, starry sky, and the occasional farmhouse far off from the road, marked by a distinct dim light that stood out in the openness. The place looked deserted, rightly so, as it was past nine and most families would have gone to bed. The two friends were meeting after two years and had a lot to share, something Sanchez could easily stay out of, and she enjoyed the calmness the village offered, which drew her away from her trepidations.
+Throughout the drive, Jules kept them entertained. He chatted without stopping, sometimes blurting out silly jokes and at times becoming a tourist guide, giving details of the places they were passing. Jules’s house was about five kilometres from the main street of Nazaré, in a village called Valado dos Frades. Sanchez could see the flat fields under a clear, starry sky, and the occasional farmhouse far off from the road, marked by a distinct dim light that stood out in the openness. The place looked deserted, rightly so, as it was past nine and most families would have gone to bed. The two friends had not met in two years and had a lot to share, and Sanchez was content to stay out of it and enjoy the quiet of the village.
 
 A bumpy mud track climbed to a small farmhouse of white stucco under a red terracotta roof, with a low wall of local stone around one side and a lonely bulb burning on the porch. Inside it was simple and spotlessly clean, and the windows, built of bricks in a blue-painted criss-cross, stood open to the mild night.
 
@@ -1197,7 +1181,7 @@ Jules’s study looked like the den of a historian. The walls were covered with 
 
 They had to move things around to find space to sit. Sanchez brought her phone to life and showed Jules the map pictures. Jules looked at the images with keen interest, and after spending some time observing them, he connected the phone to the computer. The enlarged images of the map appeared on the large screen. After a determined hunt for a pen and paper in the pile of books around the room, he was in business, lost in his own world.
 
-For the next hour, he remained engrossed in his work. He switched between the map image that Sanchez had provided and some of his own maps on the computer, all this while scribbling in a relentless manner on the notepad. They watched him at work with awe and hope. At last he said, “This map is cryptic. I believe I got most of it, but there are things you can’t figure out only by looking at the map.” He turned around, smiled and, for the first time since they had entered the room, looked away from the map.
+For the next hour, he remained engrossed in his work. He switched between the map image that Sanchez had provided and some of his own maps on the computer, all this while scribbling in a relentless manner on the notepad. They watched him at work with awe and hope. At last he said, “This map is cryptic. I believe I got most of it, but there are things you can’t figure out only by looking at the map.” He turned around and smiled, and looked away from the map at last.
 
 He waved at them, asking them to come closer, and spread his notes on the table. “This is a secret pathway map, designed to work on a strict schedule and timeline. Do you see the small dots across the map? These are the places that someone will travel to. Now there is an interesting colour pattern on the dots.” There was excitement in his voice as he pointed to the map. “I believe the colour indicates the day of the week. There are only seven colours and they repeat in a pattern. Whoever is starting the voyage starts three days from now, or it might be three months from now, when the days of the week match what is coded in the map. My hunch is inclining more towards three days from now.”
 
@@ -1206,8 +1190,6 @@ He waved at them, asking them to come closer, and spread his notes on the table.
 “I knew this was coming.” He gave a mischievous smile and took his gaze away from the computer for a moment to look at Stephen. “When you zoom in on the small dots, like this, you can see a number. The first dot has the number 21, which is Monday, exactly three days from now. If you follow the pattern, you’ll see the number either staying the same or changing. I took the average travel time by both sea and road, and it fits well with the pattern.”
 
 Sanchez was glad she had listened to her brother and made the trip. Jules was on a roll. “Most likely the first part of the journey is by sea. If you look carefully at the first few places on the map, they are all major seaports. The journey starts at Tallinn in Estonia. From Tallinn it heads to Ventspils in Latvia and then to Gdynia in Poland.”
-
-By now Sanchez was captivated, listening to every piece of information Jules was stating.
 
 “From there, the journey will likely continue by road. The next stop, Warsaw, is in the middle of Poland, surrounded by land. The trip ends in Belarus, in a city called Vitebsk. If you know a little about Eastern European geography, you’ll notice that Vitebsk is close to Russia, and the border between Belarus and Russia is porous. Traffic can travel in and out without any border check. So my guess is Russia has an important part to play. That’s all I have.”
 
@@ -1224,7 +1206,7 @@ Sanchez promised she would. She did not tell him that she had one more call to m
 ## Chapter 22
 ### 3:30 PM, Friday 18th April 2014, Nazaré, Portugal
 
-Sanchez was looking for a public phone. She now had a local number from Jules but refrained from using it. She had enough problems to deal with and had no desire to add any more to her list of worries. After a few minutes of walking, she spotted a telephone booth right across from a deserted bus stop. She dialled the number John had given her and waited for a response.
+Sanchez was looking for a public phone. She now had a local number from Jules but refrained from using it. She had enough problems to deal with and had no desire to add any more to her list of worries. After a few minutes of walking, she spotted a telephone booth right across from a deserted bus stop. John had once run from her down his own street, but he was the man who had handed her father the package, and after he gave her Evan’s name he had come looking for her twice more of his own accord. It was John who had given her Adriana’s name, when she said she would need someone who could read TransPacific’s maps. She dialled the number he had given her and waited.
 
 A lady’s voice came to life. “Quem fala?” (“Who is speaking?”)
 
@@ -1242,7 +1224,7 @@ She put her dangling lock behind her ear and with a thin smile said, “Nothing 
 
 Though Stephen was worried, he never wanted Sanchez to be aware of it, so he put on his famous grin. “Everything will be fine. Let me get a taxi.” Soon they were on their way to Adriana’s house in Fanhais, a few kilometres inland.
 
-The taxi braked suddenly to dodge a pothole, bringing Sanchez out of her brooding. Stephen asked the driver about the remaining distance, and the driver announced they were only a few minutes away. The mid-afternoon sun was seeping through the scattered clouds. The place was sparsely populated, and the low houses of pale stucco, the broad vineyards and the quiet road made the village appear like a sketch out of a picture book.
+The taxi braked suddenly to dodge a pothole, bringing Sanchez out of her thoughts. Stephen asked the driver about the remaining distance, and the driver announced they were only a few minutes away. The mid-afternoon sun was seeping through the scattered clouds. The place was sparsely populated, and the low houses of pale stucco, the broad vineyards and the quiet road made the village appear like a sketch out of a picture book.
 
 Adriana’s house stood alone at the farthest corner of the street. It was surrounded by an old picket fence, part of which was broken, and a half-broken wooden gate led to a mud lane lined with unkempt briars. Bradley had taught her to count the ways out of a building before she went into it, and she did so now without thinking. The house had two floors and tall windows covered with wrought iron. A drainpipe ran down the front wall from the gutter beside an upstairs window, and she could see another at the back corner. To the left stood a detached garage of bare brick, and behind the house a field ran down towards a low brick building in the distance. At the side of the house a few steps led down to a basement door.
 
@@ -1254,7 +1236,7 @@ Adriana seemed starkly different from how she had sounded on the phone. She carr
 
 She showed them the way to the living area. Unlike the tattered exterior, the interior was tastefully done. The living room was small, with pale plaster on the walls, and the fittings were few and sparsely placed, a sofa in the middle and an old wooden chair towards the far left. On the far right, hanging off the wall, was a large photograph of a young couple, Adriana and a smiling man with a sunburnt face, captured maybe a couple of decades back. Sanchez looked at it for a moment longer than she meant to. Adriana followed her eyes to it and said nothing.
 
-Sanchez and Stephen settled on the sofa. Adriana brought them water and sat across from them on an ottoman. Sanchez took a sip from the glass and with a low voice initiated the conversation. “Thank you, Adriana, for accommodating us at such short notice. John said you have great knowledge of maps, especially the ones that come from TransPacific. We are in a rush and would greatly appreciate your help in deciphering the one we have with us.”
+Sanchez and Stephen settled on the sofa. Adriana brought them water and sat across from them on an ottoman. Sanchez took a sip from the glass and began. “Thank you, Adriana, for accommodating us at such short notice. John said you have great knowledge of maps, especially the ones that come from TransPacific. We are in a rush and would greatly appreciate your help in deciphering the one we have with us.”
 
 Sanchez paused as she pulled out her phone to bring up the map pictures. When she looked up, Adriana’s bright smile had gone pale in the shadow of the light bulb, as though she had been waiting for another question altogether, one Sanchez had not asked. It lasted only a moment, and then she smiled again.
 
@@ -1266,9 +1248,9 @@ Sanchez looked at her brother but failed to decipher his views. She explained th
 
 “I need time to go through this,” Adriana said without taking her attention away from the map.
 
-“We haven’t booked a hotel. We have been running blind since yesterday morning. Besides, we want to avoid hotels, as we noticed some people looking for us at Lisbon Airport.” There was a clear hesitation in Sanchez’s voice, confirmed by the way she was playing with her wristwatch.
+“We haven’t booked a hotel. We have been running blind since yesterday morning. Besides, we want to avoid hotels, as we noticed some people looking for us at Lisbon Airport.” She was playing with her wristwatch as she said it.
 
-Adriana looked away from the phone, brought back her infectious smile and continued, “I live in this house alone. You can stay here tonight. Why don’t you settle down? In the meantime I will print the maps. I have food in the kitchen, nothing fancy, but good enough for a decent dinner.”
+Adriana looked up from the phone and smiled again. “I live in this house alone. You can stay here tonight. Why don’t you settle down? In the meantime I will print the maps. I have food in the kitchen, nothing fancy, but good enough for a decent dinner.”
 
 Sanchez thanked her and told her that they had eaten a good lunch and dinner might not be necessary.
 
@@ -1289,7 +1271,7 @@ At a quarter past four, some ten minutes before the thud outside Adriana’s bac
 
 “When did they come? Are they alone?”
 
-“They arrived a few minutes back,” Luís said in a hushed voice. “The girl and a young man, by taxi. The lady let them in.”
+“They arrived a few minutes back,” Luís said quietly. “The girl and a young man, by taxi. The lady let them in.”
 
 “Good. Keep a close eye on them and if you see anything unusual, call me.”
 
@@ -1315,11 +1297,11 @@ He was thinking about the conversation he had had with Oskar a little after half
 
 “We saw them entering the house!” It was Paulo, who led the four men Francisco had kept at Fanhais since the morning.
 
-“We are on our way. Keep a good eye on them. Remember, no mistakes.” There was a sense of achievement in his voice, and he did not trouble to hide it.
+“We are on our way. Keep a good eye on them. Remember, no mistakes.” He did not trouble to hide his satisfaction.
 
 The plan had been to leave her in the woman’s house for the night and to come for her in the dark. Benedikt found he could not wait. He had lost her at Helsingør, at Zurich and again at Lisbon Airport, and he did not mean to leave the fourth time to anyone else. He stood up and went out to the van.
 
-Francisco had no clue what his chief meant to do at Fanhais, and it was evident that being kept outside the plan was making him anxious and fidgety. He took the driver’s seat. Benedikt got in behind him and said, “We need to be there as soon as possible,” and Francisco pulled his gun out of his pocket and threw it into the glove compartment. Damian climbed in beside Benedikt, and soon they were crossing the long bridge over the Tagus towards the A8 and the north. The occasional passing vehicle was the only sound one could hear, for the occupants had decided to maintain complete silence.
+Francisco did not know what his chief meant to do at Fanhais, and being kept outside the plan was making him fidgety. He took the driver’s seat. Benedikt got in behind him and said, “We need to be there as soon as possible,” and Francisco pulled his gun out of his pocket and threw it into the glove compartment. Damian climbed in beside Benedikt, and soon they were crossing the long bridge over the Tagus towards the A8 and the north. The occasional passing vehicle was the only sound one could hear, for the occupants had decided to maintain complete silence.
 
 About five minutes into the drive, Paulo rang again. A man had got out of a car parked further up the lane, and he was walking towards the woman’s gate in haste, as if he had been sent. Benedikt did not know who he was, and he did not like it. After a few moments of listening, he announced, “Get them and meet me at the warehouse.”
 
@@ -1347,7 +1329,7 @@ Francisco kept his curiosity in check and followed the instruction without quest
 
 “A policeman has been shot at that house,” Benedikt said. “I will not be within fifty miles of a dead policeman.”
 
-He kept checking his watch every other minute. Nobody outside his own people and the woman herself had known the girl was going to Fanhais, but a policeman had been waiting in the lane. For the first time since his arrival in Lisbon, Benedikt was anxious.
+He kept checking his watch every other minute. Nobody outside his own people and the woman herself had known the girl was going to Fanhais, but a policeman had been waiting in the lane. Benedikt was anxious now.
 
 * * *
 
@@ -1362,9 +1344,9 @@ From where he was, the distance to Adriana’s house was a little over an hour, 
 
 Sanchez was already at the bedroom door when Stephen came out of the bathroom, startled. He grabbed the shirt he had taken off not too long ago and followed her as she led the way, tiptoeing to the other side of the house. They took shelter in the room opposite, which faced the front of the house. She zeroed in on the window as her escape route and opened it slowly to arrest any squeaking sound. A drainpipe ran from the roof to the ground right next to the window, the one she had noted from the gate when they arrived. She pointed to it, expressing her intention, and took the lead.
 
-As she slid down the pipe, a woman’s voice rose from somewhere below. It was Adriana, demanding in Portuguese how anyone dared to enter her house without permission. No one answered her. Sanchez ignored the voice and continued sliding down. Stephen mustered some courage and followed her. The height was manageable, and even if he fell, it would not kill him.
+As she slid down the pipe, a woman’s voice rose from somewhere below. It was Adriana, demanding in Portuguese how anyone dared to enter her house without permission. No one answered her. Sanchez ignored the voice and continued sliding down. Stephen followed her. The height was manageable, and even if he fell, it would not kill him.
 
-She was glad now that she had not changed out of her jeans and trainers. Her feet touched the ground beside the broken fence, and she looked about her. The lane and the gate lay to the right. To the left stood the detached garage, and beyond it and behind the house the ground opened into fields that ran all the way down to a line of trees and a low brick building in the distance. From the side of the house, somewhere beyond the garage, came the sound of a scuffle, men’s voices and something heavy striking wood. She had no clue who was fighting whom, and she did not stop to find out. The moment Stephen landed, she caught his wrist and ran for the fields.
+She was glad now that she had not changed out of her jeans and trainers. Her feet touched the ground beside the broken fence, and she looked about her. The lane and the gate lay to the right. To the left stood the detached garage, and beyond it and behind the house the ground opened into fields that ran all the way down to a line of trees and a low brick building in the distance. From the side of the house, somewhere beyond the garage, came the sound of a scuffle, men’s voices and something heavy striking wood. She did not stop to find out who was fighting whom. The moment Stephen landed, she caught his wrist and ran for the fields.
 
 They were perhaps a hundred metres out when two shots rang out behind them, one after the other, from behind the garage wall. The sound was flat and short, and the birds rose from the vines all around them. Stephen faltered and looked back. Sanchez pulled him on. She did not know who had fired, or at whom, and there was no time to wonder. She thought of Adriana, alone in the house with the men who had come in by her front door, and the thought slowed her feet for a moment. But Stephen was her charge, and the men had come for the two of them, not for a woman who read maps.
 
@@ -1385,7 +1367,7 @@ Slowly she raised her hands, and beside her Stephen did the same. Sanchez was sh
 ## Chapter 25
 ### 4:45 PM, Friday 18th April 2014, Fanhais, Nazaré, Portugal
 
-Sanchez watched the man with the gun approach with cautious steps. He had seen from a distance how she had put his friends on the ground, and it showed in every step he took. He stopped a little beyond her reach, with the gun pointed at their chests, and it was evident that he would not underestimate her again. Without taking his eyes off them, he called upon his partner in Portuguese to search them. It was strange to her that he was more worried about her than about the young man at her side.
+Sanchez watched the man with the gun approach with cautious steps. He had seen from a distance how she had put his friends on the ground, and it showed in every step he took. He stopped a little beyond her reach, with the gun pointed at their chests, and he would not underestimate her again. Without taking his eyes off them, he called upon his partner in Portuguese to search them. It was strange to her that he was more worried about her than about the young man at her side.
 
 His partner went ahead with his guard up. He turned towards Sanchez first. His hands were quick and impersonal, and they found the pistol at the small of her back almost at once. He pulled it out of her waistband, looked at it, then at the two men lying in the grass behind her, and pushed it into his own belt. The man with the gun said something sharp to him, and he answered with a shrug. Once she was cleared, she was told to turn around with her back to them. Next, the partner searched Stephen thoroughly. Nothing was found on him, and he too was made to turn around, about two feet away from her.
 
@@ -1411,7 +1393,7 @@ Benedikt had rung Paulo’s number because nobody had rung his. The phone was an
 
 “I told you to call me the moment you had her. Do you have the girl?”
 
-The man mustered some courage and told him. They had the girl, but she had overpowered Paulo and Tiago, and they were lying unconscious in a field. His name was Nuno, and this was Paulo’s phone.
+The man told him. They had the girl, but she had overpowered Paulo and Tiago, and they were lying unconscious in a field. His name was Nuno, and this was Paulo’s phone.
 
 “And what are you still doing there when you already have the girl?”
 
@@ -1425,7 +1407,7 @@ He ended the call. Damian was watching him from the other seat, and Benedikt kne
 
 * * *
 
-Sanchez heard Nuno come back through the grass. The two men spoke in low voices, and it was evident from their tone that it hadn’t been a pleasant conversation. “We need to move quickly,” Nuno said at last. “The chief is waiting for us.” The other man hesitated, but they had not been given any choice, and against their wishes they left their friends where they lay.
+Sanchez heard Nuno come back through the grass. The two men spoke in low voices, and it had plainly not been a pleasant call. “We need to move quickly,” Nuno said at last. “The chief is waiting for us.” The other man hesitated, but they had not been given any choice, and against their wishes they left their friends where they lay.
 
 Nuno commanded them to walk towards the house. Their car was parked a little away from the entrance, and the walk was a few hundred metres back across the open fields. Sanchez sensed that the two men were shaken, and that their minds were still with their friends in the grass. She knew they weren’t fully focused on her and Stephen, and she knew this could be her only chance to break free. Had it not been for the guns, she could have easily taken them down, but for now she had to find some other way.
 
@@ -1496,7 +1478,7 @@ A loud gunshot made Stephen jump, and his head hit the roof of the van. Before h
 
 He opened the door and was about to leave the car when Sanchez shouted, “Don’t get out of the car. Go. At least one of us will be safe, and with you around I’ll have a chance to escape.”
 
-Stephen was worried and frightened and had no clue how to respond. He finally said, “I can’t.”
+Stephen did not know what to say. At last he said, “I can’t.”
 
 At the corner of the house a man was coming towards them in a bad stagger, with a pistol held in both hands. It was one of the men from the field. He fired again, and the shot hit the back door of the van with a loud, ear-splitting bang.
 
@@ -1541,7 +1523,7 @@ Stephen was too ashamed to respond. He hid his face in his palms to avoid any fu
 
 “Look, turn this van round and follow me back to the house. Stay close.” The man was already running back to his car.
 
-Stephen did as he was told. He had no idea who the man was, how he knew Sanchez, or why he wanted her so badly. He only knew that the stranger had turned towards the house without a moment’s hesitation, and that he, her brother, had not.
+Stephen did as he was told. He had no idea who the man was, how he knew Sanchez, or why he wanted her so badly. He only knew that the stranger had turned towards the house without a moment’s hesitation.
 
 * * *
 
@@ -1551,21 +1533,21 @@ Maxwell squeezed Luís’s car into the narrow drive of Adriana’s house. He fl
 
 Stephen shouted from behind him, “This way!”
 
-Maxwell turned around and traced his way back to the drive. There was blood on the gravel by the garage and a long dark smear across the drive. He could make out that Sanchez had been dragged. The blotchy brownish spots told him she had resisted as she was hauled. He knew he had to act fast, but he had no clue what to do. He held Stephen by his shoulders and demanded, “Now listen to me carefully. What happened here? Every second is precious, so be brief and exact.”
+Maxwell turned around and traced his way back to the drive. There was blood on the gravel by the garage and a long dark smear across the drive. He could make out that Sanchez had been dragged. The blotchy brownish spots told him she had resisted as she was hauled. He knew he had to act fast. He held Stephen by his shoulders and demanded, “Now listen to me carefully. What happened here? Every second is precious, so be brief and exact.”
 
-Stephen rubbed his eyes to get a clearer vision and told him the entire episode in an embarrassed tone. He concluded with a shaking voice, “The man who shot her was standing there.” He pointed towards the narrow path that opened onto the fields. Then he regained a spark in his voice, as if remembering something important. “There were four of them, but when I drove off I could only see three in the mirror. One of them must still be out in the field.”
+Stephen rubbed his eyes and told him what had happened. He finished with a shaking voice, “The man who shot her was standing there.” He pointed towards the narrow path that opened onto the fields. Then he remembered something. “There were four of them, but when I drove off I could only see three in the mirror. One of them must still be out in the field.”
 
 Without wasting any time, Stephen led the way towards the open ground where he and Sanchez had fought the men not long ago. Maxwell followed him. As they went past the side of the house, he glanced behind the garage wall, and stopped.
 
 Luís was lying on his back in the long grass, out of sight of the path. He had been shot twice in the chest. Maxwell knelt and checked for a pulse, though he knew before his fingers touched him that it was too late. He had been dead for more than an hour. Maxwell had asked him to watch a house for one night, and Luís had not even asked why. He had a wife and two daughters in Lisbon. Maxwell closed his friend’s eyes and stood up. He could not afford to grieve, not yet.
 
-Nuno, the last man they had brought down, was still lying flat and unconscious in the field.
+Nuno, the last man they had brought down, was still lying in the field where Stephen had kicked him, groaning, too dazed to rise.
 
-Maxwell looked at the motionless man and said to Stephen, “Go and get some water from the house.”
+Maxwell looked down at him and said to Stephen, “Go and get some water from the house.”
 
 Maxwell’s only hope was this man. The microphone in Benedikt’s van had fallen silent at a quarter past four, and the GPS, which must have been damaged with it, had grown fitful after the van turned back. Its last position, a little after five, had been on the motorway south of the Tagus. Since then, the screen had shown nothing. He knew the car carrying Sanchez had not passed him on the road from the south, so it must have taken another way. He regretted his decision to let her out of his sight.
 
-Stephen came back with a water pail. Maxwell sprinkled some water on the man’s face. After a few tries, the man came to his senses and struggled to open his eyes. He made a faint attempt to get up, but he was too exhausted to go anywhere.
+Stephen came back with a water pail. Maxwell threw some water on the man’s face. The man coughed, and his eyes cleared. He made a faint attempt to get up, but he was too exhausted to go anywhere.
 
 Maxwell took his gun out. “I have neither the patience nor the time. Tell me where they were taking the girl.”
 
@@ -1634,7 +1616,7 @@ This time the men committed no mistakes, and they reached their destination with
 
 The place stood on the south bank of the Tagus at Seixal, amongst the old boatyards, isolated at the end of a pitted road. The building was a long flat concrete structure with a dark greyish exterior. Long wild vines and unruly shrubs covered its time-stained walls, and it looked as if nobody had stored anything there for years. A tall rusted wrought-iron gate was open halfway, not wide enough for the car to go through. Tiago got out and pushed it. The gate made a squealing noise, resisting the push, and slowly made way. He drove in and parked right in front of the entrance.
 
-The girl was not in a state to walk, so they carried her. Paulo held her by the arms and the other two took her legs. The flow of blood had slowed, but a good amount had been lost, and it was evident from the pale look on her face.
+The girl was not in a state to walk, so they carried her. Paulo held her by the arms and the other two took her legs. The flow of blood had slowed, but a good amount had been lost, and her face was pale.
 
 Inside, a few dim lights were fighting hard to keep the darkness away. The warehouse was one long hall with no rooms or partitions, and the floor had caved in at regular intervals, letting the weeds grow in abundance. The men walked to the centre of the hall, turned left and continued until they reached the far wall. There was a small flap hidden behind a few vines. Tiago tapped it open, exposing a row of buttons, and pressed them in a pattern. One of the floor tiles slid open, exposing a staircase. They climbed down the spiral stairs with utmost care, and at the bottom Tiago pushed another switch and the tile slid back into place above them.
 
@@ -1652,28 +1634,24 @@ Tiago felt the cold metal against his temple and did not dare to move. He had po
 
 For a few seconds nothing happened. Then Benedikt lowered the gun, as if he had only just remembered it was in his hand, and turned his back on him.
 
-He went to the girl and gently took her from Paulo’s arms. The locks of her hair were all over her face, and with one hand still holding her, he put the hair aside to make her face visible. He did not speak. He did not look at any of them. He kept looking at her in silence, and Tiago, who had never seen the chief before that day, understood that this was not a man looking at a thief.
-
-Tiago understood something else as well. The girl was the only reason he was still alive, and if she did not open her eyes, the chief would remember him.
+He went to the girl and gently took her from Paulo’s arms. The locks of her hair were all over her face, and with one hand still holding her, he put the hair aside to make her face visible. He did not speak. He did not look at any of them. He kept looking at her in silence, and Tiago, who had never seen the chief before that day, understood that this was not a man looking at a thief. If she did not open her eyes, the chief would remember him.
 
 ## Chapter 29
 ### 7:30 PM, Friday 18th April 2014, Seixal, Portugal
 
-Benedikt was devastated. He had waited for this moment since Helsingør, and now that it had presented itself, he was unable to fathom it. She was in his arms, and she was bleeding, and it had been done by one of his own men against his orders. With every passing minute it was becoming harder for him to comprehend.
+Benedikt was devastated. He had waited for this moment since Helsingør, and now that it had presented itself, he was unable to fathom it. She was in his arms, and she was bleeding, and it had been done by one of his own men against his orders.
 
-For the first time, he was certain of his yearning for her, and now that he was certain, he was determined to do anything to get her out of her misery. Before he could free himself from his thoughts, Sanchez opened her eyes. She was quivering with pain, and the practicality of the situation sank in. He lifted her and rushed towards the staircase. As he climbed the stairs he announced, “Francisco, get me the best doctor you know, and have him meet us at the nearest clinic.”
+He was certain now of his yearning for her, and he was determined to do anything to get her out of her misery. Before he could free himself from his thoughts, Sanchez opened her eyes. She was quivering with pain, and the practicality of the situation sank in. He lifted her and rushed towards the staircase. As he climbed the stairs he announced, “Francisco, get me the best doctor you know, and have him meet us at the nearest clinic.”
 
 Francisco led the way to the van, talking in a hurried manner into his phone. He opened the back door and helped Benedikt lay her straight on the seat. Benedikt climbed in, carefully lifted her head and put it on his lap as he made space to sit next to her. She had closed her eyes again.
 
 Francisco took the driver’s seat and Damian sat next to him. He had thrown his gun into the glove compartment before they set off, and now he opened it and fumbled around for it. His hand struck a metal piece. He peeped inside and found a tiny instrument taped in the lowermost corner of the compartment. He pulled it out and showed it to Damian.
 
-“It’s a bug!” Damian announced. For the first time that evening Benedikt paid attention to his men’s conversation.
+“It’s a bug!” Damian announced. Benedikt looked up.
 
 He held out his hand and looked at the thing for some time. “It makes complete sense. That policeman at Nazaré was not an accident. Destroy it. Tell our men to vacate all places. I want to leave this country as soon as we can.”
 
 “It’s already damaged, Chief,” Francisco said. “It must have happened when I threw the gun in there. It hit it squarely.”
-
-Francisco looked amazed at his own discovery.
 
 The engine came to life with a big roar. Benedikt’s mind was racing. Somebody had been listening to them in that van since Thursday. Somebody had heard him speak of the woman in Nazaré, and somebody had put a policeman in her lane. It had the smell of the police, and if it was the police, they knew his voice. Now that he had her, he wanted to avoid all unnecessary confrontations. By morning Francisco’s men would be gone from Lisbon, Tiago with them, and Benedikt did not ask where.
 
@@ -1697,7 +1675,7 @@ Before they left, Benedikt asked him what she would need when she woke.
 
 “Rest,” Dr Serra said stiffly. “Water. Something warm and light to eat.”
 
-Benedikt turned to Damian. “Have some soup put on the plane. Is that clear?”
+Benedikt turned to Damian. “Have some soup put on the plane.”
 
 Damian, who had known him for more than a decade, in uniform and out of it, looked at him for a moment longer than he needed to, and went to make the call.
 
@@ -1709,7 +1687,7 @@ An ambulance pulled up at the entrance, and soon Sanchez, the doctor, Damian and
 
 The jet slowly inched towards the runway. All this while Benedikt’s entire attention was on her. She was in a deep slumber on the narrow bed the crew had made up for her, and he was glad she was getting the much-needed time to recover from what she had undergone.
 
-As the jet lifted off, he looked down at the lights of Lisbon spreading along the river. Somewhere down there was the man who had put a microphone in Francisco’s van and a policeman in a lane at Fanhais. Benedikt did not know his name, or his face. And for the first time, he wondered whether it was the same man the station cameras in Copenhagen had caught behind her in a dark windcheater, the man who paid by card as Trevor Harlow.
+As the jet lifted off, he looked down at the lights of Lisbon spreading along the river. Somewhere down there was the man who had put a microphone in Francisco’s van and a policeman in a lane at Fanhais. Benedikt did not know his name, or his face. He wondered whether it was the same man the station cameras in Copenhagen had caught behind her in a dark windcheater, the man who paid by card as Trevor Harlow.
 
 ## Chapter 30
 ### 7:50 PM, Friday 18th April 2014, Seixal, Portugal
@@ -1805,7 +1783,7 @@ He ended the call and sat in the dark with the phone in his hand. Stephen would 
 
 Sanchez came out of a deep slumber to the steady roar of jet engines, and for a few minutes she had no idea where she was. The cabin lights were dimmed. She was lying on a narrow bed with a blanket over her, a drip was taped to the back of her hand, and her left leg was bandaged from the ankle to the knee and throbbing. Her wristwatch was still on her wrist. It said half past eleven.
 
-She looked around with confused eyes. After a few minutes of struggle, she tried to get up, but failed. At once Benedikt was beside her. He held her by the shoulders and said in a calm voice, “You need to rest. Let me call the doctor.”
+She looked around with confused eyes. After a few minutes of struggle, she tried to get up, but failed. At once Benedikt was beside her. He held her by the shoulders. “You need to rest. Let me call the doctor.”
 
 Without knowing why, she listened to him and remained still.
 
@@ -1813,7 +1791,7 @@ The doctor came forward from the rear of the cabin. He was a grey-haired man who
 
 “How do you feel now?” he asked, in careful English.
 
-“Where am I?” she enquired, confused and startled.
+“Where am I?” she asked.
 
 The doctor did not answer. He glanced towards Benedikt instead, and Sanchez saw that he did not know either. She tried again, quietly, in Portuguese. “*Para onde vamos?*”
 
@@ -1829,7 +1807,7 @@ Sanchez’s memory of the evening started returning in patches. She remembered t
 
 Sanchez resisted taking any help from him. She shook her arms free of his hold and looked away. Benedikt tried again, but she held the bed rails firmly. “Please leave me alone.”
 
-Benedikt was composed and answered in a soft tone, “No one wants to harm you. You were not supposed to be shot. It was a mistake. Now, if you do not get well, how will you pursue your undertakings?”
+Benedikt answered softly. “No one wants to harm you. You were not supposed to be shot. It was a mistake. Now, if you do not get well, how will you pursue your undertakings?”
 
 Sanchez was surprised to see the care he displayed. She had eluded him for the past four days, she had drugged him and robbed him, and in all seriousness she should have been a corpse by now. But instead of questioning her, he was concerned. She knew there had to be a motive behind his behaviour, but she failed to decipher it.
 
@@ -1849,7 +1827,7 @@ Sanchez was still staring at nothingness, and she refused to speak. He waited a 
 
 Sanchez’s mind was in overdrive. She went through her position the way Bradley had taught her to go through a room. She was thirty thousand feet above Europe with a hole in her leg, and there was nowhere to run and nothing to run on. Stephen had got away, and Adriana with him. That was the one good thing, and she held on to it. Jules’s copies of the map had been destroyed that morning, and her phone, with her photographs of it, had been in her pocket at Fanhais and she had not seen it since. It hardly mattered. The route was in her head. Tallinn, then Ventspils, Gdynia, Warsaw, Vitebsk, and Russia beyond. Somewhere along that line was the answer to what had happened to her father. And the man who had taken her prisoner was carrying her to the first dot on it.
 
-He had not questioned her. He had not threatened her. He had fed her soup and told her she was not supposed to be shot. One thing was evident. Benedikt had a soft corner for her. She had seen the first of it at the card table in Helsingør, and she had used it once already. She knew he would risk a lot for her. The more she weighed the thought, the more she was convinced that Benedikt was her key, not to escape, but to the route itself.
+He had not questioned her. He had not threatened her. He had fed her soup and told her she was not supposed to be shot. One thing was evident. Benedikt had a soft corner for her. She had seen the first of it at the card table in Helsingør, and she had used it once already. She knew he would risk a lot for her. The more she weighed the thought, the more she was convinced that she should not try to escape at all. Benedikt could take her down the route.
 
 She would have to give him something in return. She decided to reciprocate his endearment, but in a deceptive manner, and she knew she would have to be prudent, for he was no fool, and if it looked obvious he would see through it at once. Luckily, she wasn’t badly hurt, but she knew it would take a few days to recover. She would use her healing time to come close to him. And she would begin with silence, for a girl who gave in too soon would never be believed.
 
@@ -1896,7 +1874,7 @@ Any conversation was good for Benedikt. “I will not hide anything. When you di
 
 He continued, “After that it was not difficult. You had been an intern in Mr Slater’s own office. I looked at everything you did at the company, and one name came up more than once. John Patterson.”
 
-He poured a glass of orange juice for her and continued, “I must tell you, John did not budge at all. So we looked at his phone records instead. On Tuesday morning he received a call from a payphone in Copenhagen, and eight minutes later he called a number in Nazaré. The number belonged to Adriana Lobo. I put her house on watch. The rest you know.”
+He poured a glass of orange juice for her and continued, “I must tell you, John did not budge at all. He was frightened, and my people leaned on him hard, but he gave them nothing. So we looked at his phone records instead. On Tuesday morning he received a call from a payphone in Copenhagen, and eight minutes later he called a number in Nazaré. The number belonged to Adriana Lobo. I put her house on watch. The rest you know.”
 
 He paused to observe her reaction, but Sanchez gave nothing away. After a frustrating wait, Benedikt asked, “Do you have anything to say?”
 
@@ -1904,7 +1882,7 @@ She was playing with the coffee cup and had no intention of responding. Benedikt
 
 Benedikt could not believe he had spoken those words. He left the table and walked slowly to the large glass wall. He stood by the window with his back to her and looked down at the square, where the first of the morning’s visitors were crossing towards the cross.
 
-He was still looking at the square when Sanchez spoke in a low tone. “You don’t want to know what I am after?”
+He was still looking at the square when Sanchez spoke again. “You don’t want to know what I am after?”
 
 Benedikt rushed back to her. “Try me once. I will not disappoint you.” There was excitement in his voice, and for a moment he knew he must look like a young boy.
 
@@ -1920,7 +1898,7 @@ Benedikt found some hope. “Of course. I will leave you alone for now. I will m
 
 *Noon*
 
-Sanchez kept looking at the closed door for a long time after he had gone. She knew Benedikt was telling the truth, and she knew that if she could manage it well, she might be able to use his help. It was a ray of hope, distinct and clear in the midst of all the madness. She wanted to make it look real, for she knew that if she missed the mark her plan would be in complete jeopardy. But she had also seen in him a child, a restless soul and an honest man, and a wave of sadness came over her. She hated the thought of playing with his feelings. She had bigger problems to solve, and until she found her father, falling in love did not fit into any of her schemes.
+Sanchez kept looking at the closed door for a long time after he had gone. She knew Benedikt was telling the truth, and she knew that if she could manage it well, she might be able to use his help. It was a ray of hope, distinct and clear in the midst of all the madness. She wanted to make it look real, for she knew that if she missed the mark her plan would be in complete jeopardy. But she had also seen in him an honest man, and a wave of sadness came over her. She hated the thought of playing with his feelings. She had bigger problems to solve, and until she found her father, falling in love did not fit into any of her schemes.
 
 She must have dozed off at the breakfast table, for the next thing she knew was the sound of a phone. She opened her eyes and saw Benedikt standing in the doorway, cursing himself as he fumbled to switch it off. It was noon, and he was exactly on time.
 
@@ -1932,7 +1910,7 @@ It was a mild afternoon, and the sky was spotless. The slow-moving spring breeze
 
 After about five minutes Benedikt sheepishly enquired, “Do you have a place in mind?”
 
-Sanchez responded in a teasing tone, “You don’t have patience, do you?”
+Sanchez smiled. “You don’t have patience, do you?”
 
 He tried hard to sound as normal as he could. “You have a wounded leg. I am not sure walking for long is good for you.”
 
@@ -1961,7 +1939,7 @@ She took another sip of her drink and reeled her mind back to that Sunday mornin
 
 “I can never forget that dreadful Sunday. I saw him for the last time from the windowsill of my room, slowly drifting away into the morning mist, never to return.”
 
-Sanchez was gazing into the candle between them, lost in her own world. Benedikt did not interrupt her with any questions. She took a long pause, looked straight into his eyes and continued.
+Sanchez was gazing into the candle between them. After a long pause she looked up at him and continued.
 
 “Our family was all we had. Mum, Dad, my brother and me. Dad never worked on a Sunday. Every Sunday morning he went down to the bakery on the square for muffins, and I watched him go from my window. It was a game we played, though neither of us ever admitted it.”
 
@@ -1971,7 +1949,7 @@ At the word *bakery* Benedikt set his glass down. His face lost its colour for a
 
 The waiter interrupted them as he spread out the lunch on the table. Benedikt offered her the basket of bread. He did not ask what kind of car it had been, and she noticed that he did not, and thought it was his tact.
 
-This was the first time Sanchez had told the whole of it to anyone. The scenes had played in her nightmares a thousand times, but telling them aloud was strangely relieving, as if she was setting down a long-carried burden. She broke her bread and continued.
+She had never told the whole of it to anyone. The scenes had played in her nightmares a thousand times, but telling them aloud was a relief. She broke her bread and went on.
 
 “Our only hope was Mr MacCallum, the police sergeant. In the beginning he did everything he could to find Dad, but soon he withdrew from the case. He stopped answering our calls, and when we confronted him, he was callous and gave us no convincing answers. After six months we knew he had given up, even if he never said so.”
 
@@ -1979,7 +1957,7 @@ This was the first time Sanchez had told the whole of it to anyone. The scenes h
 
 “I was sixteen. I didn’t know how.”
 
-She took a quick break to chew her bread and gulped some Kali. Then she told him, more briefly, how one Sunday that autumn she had sat down with an old exercise book and written three lines in it. Talk to Dad’s friend from work. Look through Dad’s office bag. Find out more about Dad’s workplace. She told him that her father drove for an agency and never spoke about his clients, and that the only name from his work she had ever found was in his own handwriting, John Patterson.
+Then she told him, more briefly, how one Sunday that autumn she had sat down with an old exercise book and written three lines in it. Talk to Dad’s friend from work. Look through Dad’s office bag. Find out more about Dad’s workplace. She told him that her father drove for an agency and never spoke about his clients, and that the only name from his work she had ever found was in his own handwriting, John Patterson.
 
 “He used to travel all over for his deliveries, and I was always curious about the places he went. Whenever I asked, he used to say, ‘San, one day I will take you to all those places. I want you to see them for yourself.’”
 
@@ -1987,31 +1965,29 @@ Her voice caught on the name only her father had ever used, and she looked down 
 
 She told him how the memory of a geography project had come back to her, when Dad had taken the pencil from her hand and drawn his travel lines across her map of Scotland and put a star on Ayr. It had sent her to the wardrobe in her parents’ bedroom, where his office bag still hung. In it were receipts with Ayr addresses and a single notebook, his work diary, full of addresses and times and a few words she did not understand.
 
-In the middle of her story she realised she was giving away far more detail than he could want. She looked at him sheepishly and found him watching her with interest.
+In the middle of it she realised she was giving him far more detail than he could want, and she looked at him sheepishly.
 
 “Sorry for taking you through all these details. Let me come to the point.”
 
 Benedikt stretched his hand across the table, held hers and squeezed it gently. “I like details.”
 
-The words were reassuring, and she could not take her gaze away from him. She slowly continued.
-
 “Ayr was an hour from home, and I needed a reason to go. I had to wait until I had finished at school. Then one evening I told Mum the house was too gloomy, that everything in it reminded me of Dad, and that I could stay with Aunt Nina in Ayr while I went to college there. Mum was reluctant, but she saw the sense in what I was saying. I still remember what she told me. ‘You are a big girl now.’ She took her time, but in the end she agreed.”
 
-After that Sanchez told him, in an undertone, about Ayr. She told him how she had found her way into TransPacific as a student on a placement, how she had found John Patterson, and how John had given up the name of Evan Slater. She told him how she had come to hear the name Benedikt in Evan’s office, and how she had learned about the game at Helsingør and the map in his briefcase. She let him believe she had found all of it on her own. Of the man who had trained her, timed her on the drainpipes and given her the envelope of money, she said nothing at all. It was the one secret she kept, and she kept it carefully.
+After that she told him about Ayr. She told him how she had found her way into TransPacific as a student on a placement, how she had found John Patterson, and how John had given up the name of Evan Slater. She told him how she had come to hear the name Benedikt in Evan’s office, and how she had learned about the game at Helsingør and the map in his briefcase. She let him believe she had found all of it on her own. Of the man who had trained her, timed her on the drainpipes and given her the envelope of money, she said nothing at all.
 
 It took her a good twenty minutes after lunch to finish. Her eyes were moist, but she felt lighter than she had in years.
 
-Benedikt was quiet. He slowly moved his hand towards hers and held it softly. She felt the same rush she had felt with him not too long ago, and she tried hard to control it and failed. His voice was low. “I am sorry you had to go through such an ordeal. I will do whatever it takes to find your father.”
+Benedikt was quiet. He slowly moved his hand towards hers and held it softly. She felt the same rush she had felt with him at Helsingør, and she tried hard to control it and failed. His voice was low. “I am sorry you had to go through such an ordeal. I will do whatever it takes to find your father.”
 
 She heard the resolve in his voice, and at that moment she believed he meant every word. How she had wished all this while for someone who could take her problems away.
 
 “I have decided,” he continued. “I will put you on a flight home tomorrow, and I will come and meet you once I have found out what happened to your father.”
 
-Those words shook her. She came crashing down from where she had been floating. She slipped her hand away from his. She cursed herself for getting carried away, and her anger rose to meet her embarrassment.
+Those words shook her. She slipped her hand away from his and cursed herself for getting carried away.
 
 “This is my battle, and I cannot let anyone else fight it for me.”
 
-Her words irritated Benedikt, and his tone reflected his frustration. “You know nothing about these people. I know them well. I cannot knowingly put you in any more danger.”
+Her words irritated Benedikt. “You know nothing about these people. I know them well. I cannot knowingly put you in any more danger.”
 
 “Who are you to decide what I should do?” She reached for her sticks, and before Benedikt could react, she was limping her way to the door.
 
@@ -2026,17 +2002,17 @@ She pulled her arm free and climbed the steps to the street without a word. The 
 ## Chapter 34
 ### 3:30 PM, Saturday 19th April 2014, Tallinn, Estonia
 
-Benedikt was flipping through the television channels without much interest. His mind was playing back every scene from the afternoon. The more he brooded, the more agitated he became, thinking how he had ruined a perfect afternoon with his behaviour. Deep inside he was convinced he had meant the best for her, if only he had said it in a more sensible manner. His heart urged him to mend things, but he knew the best way to deal with the situation was to give her time. The wait was not easy. Five o’clock was the time he had fixed in his mind to go and see her, and since then he had looked at the clock countless times. He still had an hour and a half to kill. In that moment of despair, he switched off the television and headed for her suite with renewed purpose.
+Benedikt was flipping through the television channels without much interest. His mind was playing back every scene from the afternoon. He grew more agitated each time he thought how he had ruined a perfect afternoon with his behaviour. Deep inside he was convinced he had meant the best for her, if only he had said it in a more sensible manner. His heart urged him to mend things, but he knew the best way to deal with the situation was to give her time. The wait was not easy. Five o’clock was the time he had fixed in his mind to go and see her, and since then he had looked at the clock countless times. He still had an hour and a half to kill. In that moment of despair, he switched off the television and headed for her suite with renewed purpose.
 
 With some hesitation he knocked. After a few long, anxious moments he finally heard her voice. “Come in.”
 
 Sanchez was at the writing desk, scribbling something on a notepad with great interest. She stayed focused on her work and behaved as if he was not there. Benedikt walked towards her with quiet steps and sat on the ottoman next to the sofa. He took a moment to regain his composure and spoke one word at a time. “I am so sorry for my behaviour. I have no right to decide things on your behalf.”
 
-Sanchez gave him a long look. In that moment of silence he saw a calmness in her blue eyes. And then her quiet voice broke his brooding. “I am sorry too. You need to understand, I can’t compromise when it concerns my dad.”
+Sanchez gave him a long look. In that moment of silence he saw a calmness in her blue eyes. Then she spoke quietly. “I am sorry too. You need to understand, I can’t compromise when it concerns my dad.”
 
 All his anxieties melted, and he said, “I will not cross the line again. That is a promise.”
 
-Sanchez chose not to respond, and instead gave a small smile. He was pulled out of his reverie when she took her eyes away from him and started to scribble on her notepad again.
+Sanchez gave a small smile and did not answer. Then she took her eyes away from him and started to scribble on her notepad again.
 
 He tried to mend the situation. “This time I want to hear you first. Tell me what is on your mind.”
 
@@ -2072,7 +2048,7 @@ She kept very still.
 
 “Yes, it is finished. The thief is dealt with.” There was a pause. “No. The map never left my case. She took some money, and she will not trouble us again. I give you my word on it.” A longer pause followed, and when he spoke again his voice was as calm as if he was reading out a timetable. “One more thing. For the voyage I am bringing a temp from the Copenhagen office to help with the papers. She joins me on Monday. Her name is Anna Lind. Yes. I will vouch for her myself.”
 
-He ended the call. Sanchez sat without moving. She had heard him lie before, at the card table, and she had admired it. This was different. The man he had just lied to was Evan Slater, whose name had set her on this road in the first place, and every word of the lie was for her. Somewhere in that call she had stopped being Rita and had become Anna Lind, and she had not even been asked.
+He ended the call. Sanchez sat without moving. She had heard him lie before, at the card table, and she had admired it. The man he had just lied to was Evan Slater, whose name had set her on this road in the first place, and every word of the lie was for her. Somewhere in that call she had stopped being Rita and had become Anna Lind, and she had not even been asked.
 
 A door opened on his side, and Damian’s voice came through, lower and rougher. “Chief, tell me I didn’t just hear that. You lied to Mr Slater. For her.”
 
@@ -2094,22 +2070,22 @@ Benedikt did not take his eyes off her. “Then I will have been wrong about her
 
 “I will come back.”
 
-He nodded and went down the corridor, and after a moment Damian followed him. Sanchez closed the door and leaned against it. He had put his job in her hands in front of his oldest friend, and he had given her a car in which she could have driven to the airport. She did not know whether it was the kindest thing anyone had done for her or the cleverest, and she suspected it was both.
+He nodded and went down the corridor, and after a moment Damian followed him. Sanchez closed the door and leaned against it. He had put his job in her hands in front of his oldest friend, and he had given her a car in which she could have driven to the airport.
 
 It was four o’clock. She picked up the telephone on the writing desk and dialled her brother’s number from memory. It rang twice, and then there was a scuffle at the other end, and the voice that answered was not Stephen’s.
 
 ## Chapter 35
 ### 4:00 PM, Saturday 19th April 2014, Tallinn, Estonia
 
-Maxwell was sitting in the corner of the coffee shop with his back to the wall and the door in front of him when Stephen’s phone rang and filled the quiet room with a shrill noise. Stephen picked it up and stared at the screen, trying to recognise the number. It was an Estonian number. Something crossed Maxwell’s mind, and before Stephen could react, he leaned across the table and took the phone from his hand.
+Maxwell was sitting in the corner of the coffee shop with his back to the wall and the door in front of him when Stephen’s phone rang and filled the quiet room with a shrill noise. Stephen picked it up and stared at the screen. It was an Estonian number. Before Stephen could answer, Maxwell leaned across the table and took the phone from his hand.
 
 “Who is it?”
 
 “Where is Stephen?” came a curt reply.
 
-Maxwell would have known that voice in his sleep. It was Sanchez, and he heard the agitation in her few words. His relief was so great that he could not trust himself to say anything more, and he handed the phone back to Stephen at once.
+Maxwell would have known that voice in his sleep. His relief was so great that he could not trust himself to say anything more, and he handed the phone back to Stephen at once.
 
-By now Stephen had guessed who the caller was. He was perspiring, and his hand shook as he held the phone to his ear. “Hello?”
+Stephen’s hand shook as he held the phone to his ear. “Hello?”
 
 Maxwell could hear only Stephen’s side of it, but that was enough.
 
@@ -2121,13 +2097,13 @@ Stephen gave her the name of the coffee shop, at the foot of Harju Street, a few
 
 “She’s coming,” he said. “She’s all right, and she’s coming here.”
 
-Maxwell said nothing. His mind was spinning. Had she escaped from Benedikt? If she had, why was she not in a hurry? Why had she not asked them to come and get her? It was a riddle he knew he could only solve when she walked through the door.
+Maxwell said nothing. If she had escaped from Benedikt, she would have asked them to come and get her, and she had not.
 
 * * *
 
 *4:30 PM*
 
-Maxwell saw her before Stephen did. She was standing at the entrance of the coffee shop on two walking sticks, looking round the room. Everything stopped for him, the noise disappeared and the people faded. All he could see was her. Her brown hair was loose and fell only to her shoulders now. In Ayr it had reached her waist. She looked thinner than he remembered, and paler, and she had come through a gunshot and a kidnapping in the last twenty-four hours. He admired her more than he trusted himself to admire anyone, and he knew very well that he had no right to.
+Maxwell saw her before Stephen did. She was standing at the entrance of the coffee shop on two walking sticks, looking round the room. All he could see was her. Her brown hair was loose and fell only to her shoulders now. In Ayr it had reached her waist. She looked thinner than he remembered, and paler, and she had come through a gunshot and a kidnapping in the last twenty-four hours. He admired her, and he knew very well that he had no right to.
 
 Her eyes went first to the corner of the room, and they stopped on him. He saw the recognition and then the anger. She came towards the table with her limp and stood over him.
 
@@ -2143,7 +2119,7 @@ She looked at her brother for a long moment, as if she had never seen him so det
 
 “I always take that seat myself,” she said slowly. “Every café, every train. I never knew why until now.” She folded her hands on the table. “All right. I will listen. Bradley, Maxwell or whoever you are, go ahead.”
 
-Maxwell knew that today was the day to end the pretence. He did not look away from her.
+Maxwell did not look away from her.
 
 “My name is Ross Maxwell. I am an officer with the National Crime Agency. Until last October it was called SOCA. In March 2011 I was placed in TransPacific’s head office as Bradley Fawcett, in Evan Slater’s own office. We believed the company was smuggling through the bonded warehouse at Prestwick. We could never prove it.”
 
@@ -2171,11 +2147,11 @@ For a while nobody spoke. Stephen looked down at his cup.
 
 “By you.” He made himself go on. “And there is something else you must hear from me before you decide anything. When I put you through that year of training, I already knew about your father. I knew he was a missing driver who had once carried for TransPacific. I used it to hold you. You were eighteen. And when you sat in that café on the Low Green and told me how you meant to get into Benedikt’s suite, I said nothing. I should have stopped you, and I did not.”
 
-Sanchez did not respond. Her hands stayed folded on the table, but her knuckles had gone white. Maxwell had faced angry men in his time, and none of them had frightened him as much as her silence.
+Sanchez did not respond. Her hands stayed folded on the table, but her knuckles had gone white.
 
 At last she said in a low voice, “You should have told me that two years ago.” She unfolded her hands. “Now I have something to tell you both. I have a way onto the voyage. It starts on Monday. Don’t ask me how I got it, but I want you to know that I will be safe.”
 
-She took a pause to gauge their reactions. Stephen was appalled. Maxwell kept his face still. She continued in haste, before either of them could interrupt. “Maxwell, our goals haven’t changed. We both want to bring TransPacific down. I will get you all the evidence you need. You have to trust me on this.”
+Stephen was appalled. Maxwell kept his face still. Before either of them could interrupt, she went on. “Maxwell, our goals haven’t changed. We both want to bring TransPacific down. I will get you all the evidence you need. You have to trust me on this.”
 
 “I can’t leave you with those wolves,” Stephen said. “They’re dangerous. Losing Dad nearly finished us, and if anything happens to you, both Mum and I will perish.” His voice trailed off.
 
@@ -2183,9 +2159,9 @@ Sanchez leaned forward, held her brother’s hand and said, almost in a whisper,
 
 Maxwell had been shaking his head all this while. “How can you trust Benedikt? He is a crook. Look, this is a dangerous path, Sanchez. We will find some other way to reach your father.”
 
-She looked at him steadily and spoke in a dead voice. “I didn’t come here to take your advice. After what you’ve just told me, you’re the last person who should give it. You can support my decision, or we go our own ways.”
+She looked at him steadily. “I didn’t come here to take your advice. After what you’ve just told me, you’re the last person who should give it. You can support my decision, or we go our own ways.”
 
-There was complete silence. Maxwell knew that once she had made up her mind nothing would alter it, and he could see from Stephen’s face that her brother knew it too. With some deliberation Stephen said, “Then give us some reason to believe you’ll be safe. How can I let you go like this?”
+Nobody spoke. Maxwell knew that once she had made up her mind nothing would alter it, and he could see that her brother knew it too. At last Stephen said, “Then give us some reason to believe you’ll be safe. How can I let you go like this?”
 
 “I am not fool enough to throw my life away. Jules read the map for us. You know the route as well as I do. Follow it. That way you’ll always be close if I need you. And I’ll leave the moment I have Dad and enough proof to bring this organisation down.”
 
@@ -2195,9 +2171,9 @@ Maxwell asked the question she had plainly hoped to avoid. “How will you be sa
 
 “You call Stephen every day,” Maxwell said. “Every day, Sanchez. If you miss one, I will come looking for you.”
 
-“I will,” she said with a grim face.
+“I will,” she said.
 
-As she got up, Maxwell looked past her through the window. A dark saloon was parked at the kerb across the street, and a driver in a grey suit stood beside it. The car had been there when she arrived, and the driver had not moved in half an hour. It was no taxi. Maxwell understood then whose car it was, and what it meant that she had been allowed to come here in it.
+As she got up, Maxwell looked past her through the window. A dark saloon was parked at the kerb across the street, and a driver in a grey suit stood beside it. The car had been there when she arrived, and the driver had not moved in half an hour. Maxwell understood then whose car it was, and what it meant that she had been allowed to come here in it.
 
 He followed her to the door. On the step, where Stephen could not see, he took a small black pouch from his jacket and pressed it into her hand.
 
@@ -2215,83 +2191,67 @@ She closed her hand over the pouch and slipped it into her bag. Then she went do
 
 Sanchez was awake long before Benedikt knocked at her door. Easter Sunday had passed quietly. Dr Serra had been paid and flown home to Lisbon. Sanchez had spent the afternoon buying a suitcase, a few clothes, a small laptop of her own, a cheap mobile phone and a Latvian SIM card for later, and the evening sewing Maxwell’s kit into the lining of the suitcase.
 
-Though she had gone to bed right after an early supper, she had struggled to get any sleep. Throughout the night, she oscillated between spiralling apprehensions and surging hopes. It was a long, anxious wait, which finally came to an end when Benedikt knocked, announcing it was time.
+It took them fifteen minutes to reach the harbour at Paljassaare. Unlike the other harbours in Tallinn, it was meant only for cargo vessels, and it had the least traffic. “This harbour was selected by design,” Benedikt had explained in the car. “We did not want any undue attention.” It lay on a small peninsula in the north-western part of the city, and the name itself meant ‘Barren Island’, which fitted it well.
 
-The morning welcomed her with absolute quietude, and the subtle chilliness of the night was still in the air. She sat in the car with renewed fortitude, prepared to attempt the impossible.
+The darkness was slowly receding as they walked along the pier towards the ship’s gangway, Sanchez leaning on her stick. A handful of dock workers and a few shipmates were busy with their routine work.
 
-It took them fifteen minutes to reach the harbour at Paljassaare. Unlike the other harbours in Tallinn, it was meant only for cargo vessels, and it had the least traffic. “This harbour was selected by design,” Benedikt had explained in the car. “We did not want any undue attention.” It lay on a small peninsula in the north-western part of the city, and the name itself meant ‘Barren Island’, which aptly fitted the description.
+Sanchez had always detested travelling on water, but she was there for a purpose. The ship had been a passenger ferry once, and it still carried the high white decks of one, but its hull was jet black, with DAZZLE painted along it in white capitals. Sanchez stopped on the pier. She had seen that hull before. Nearly two years ago it had hung in a frame on the wall of Evan Slater’s conference room in Ayr, on the day she won the contest. She had looked at it then as one more expensive thing in an expensive room. Now it was waiting for her at the end of a gangway.
 
-They parked the car by the docking area. The darkness was slowly receding, giving way to the morning glow. A porter helped them with their luggage, and they walked along the pier towards the ship’s gangway, Sanchez leaning on her stick. From a distance, she could see a handful of dock workers and a few shipmates busy with their routine work. Unlike what she had thought, the area was sparsely populated.
+Captain Rebane received Benedikt at the top of the gangway. He was an Estonian in his sixties, and he was waiting at perfect attention along with his officers. She noticed that there was more fear than respect for Benedikt in the way they stood. The captain’s eyes went from Benedikt to her and to her stick, and there was an open doubt in them.
 
-Sanchez had always detested travelling on water, but she was there for a purpose. As she walked towards the vessel, she got lost observing the large structure standing tall in front of her. It had been a passenger ferry once, and it still carried the high white decks of one, but its hull was jet black, with DAZZLE painted along it in white capitals. Sanchez stopped on the pier. She had seen that hull before. Nearly two years ago it had hung in a frame on the wall of Evan Slater’s conference room in Ayr, on the day she won the contest. She had looked at it then as one more expensive thing in an expensive room. Now it was waiting for her at the end of a gangway.
+“Miss Lind is my assistant,” Benedikt said before the captain could ask. “She joins us from the Copenhagen office. She will not be on the crew list, and she answers to no one but me. If anyone on this ship has a question about her, he will bring it to me.”
 
-Captain Rebane received Benedikt at the top of the gangway. He was an Estonian in his sixties, and he was waiting at perfect attention along with his officers. It was hard to ignore the clout Benedikt had. She noticed that there was more fear than respect for him. The captain’s eyes went from Benedikt to her and to her stick, and there was an open doubt in them.
+“Yes, Mr Voss.” The captain did not look at her again.
 
-“Miss Lind is my assistant,” Benedikt said before the captain could ask. “She joins us from the Copenhagen office. She will not be on the crew list, and she answers to no one but me. If anyone on this ship has a question about her, he will bring it to me. Is that clear?”
+Benedikt had told her before that on board he would act as her boss and that she should not be surprised by his change in manner. He instructed one of the shipmates to take her to her cabin, and as she was about to leave, he said, “I will see you in my office at eight. Alex will be at your cabin door. He will help you find me.”
 
-“Perfectly clear, Mr Voss.” The captain did not look at her again.
+She followed a polite boy in his late teens to a bank of lifts and up to the owner’s deck. Her cabin had been one of the ferry’s suites, and the far end of it was all tall glass doors. Alex put her suitcase on the luggage rack and said, “Madam, I will wait for you right outside the door.”
 
-Sanchez understood that Benedikt had put his own name behind her in front of the whole ship. He had told her before that on board he would act as her boss and that she shouldn’t be surprised by his change in behaviour. He instructed one of the shipmates to take her to her cabin, and as she was about to leave, he said in passing, “I will see you in my office at eight. Alex will be at your cabin door. He will help you find me.”
-
-She followed a polite boy who appeared to be in his late teens. They looped around the aisle to a bank of lifts, and the lift took them to the upper deck. Her cabin was towards the end of the corridor. Alex put her suitcase on the luggage rack and said politely, “Madam, I will wait for you right outside the door.”
-
-The cabin had been one of the ferry’s suites, and it was tastefully done, starkly different from the bland look of the vessel. The far end of it was all tall glass doors.
-
-Sanchez walked towards the glass doors. She nudged them gently, and they opened to a balcony and a breathtaking view. She could see the sun rising beyond the edge of the sea. The orange hues were not piercing but soothing to the eyes, and the morning breeze gently caressed her skin. It was a blissful moment, and she was so engrossed in it that for a while she forgot everything that was making her restless.
+Sanchez walked to the glass doors and opened them onto a balcony. The sun was rising beyond the edge of the sea. The orange hues were not piercing but soothing to the eyes, and the morning breeze was cold on her skin. For a while she forgot everything that was making her restless.
 
 * * *
 
 *7:30 AM*
 
-Sanchez took a quick shower and got ready for her first day at work. Besides the fact that she was Benedikt’s assistant, she had no clue what she was required to do.
+Alex was waiting outside the cabin, and he led the way. The ship was a maze, and she was glad of him. Benedikt’s office was on the upper deck, next to the captain’s cabin, and it spanned the width of the stern. Two guards at the entrance opened the door without asking any questions.
 
-Alex was standing in an attentive position outside the cabin door. The moment she stepped out, he greeted her with a polite bow and led the way. The ship was a maze, and she was glad he was there to guide her. Benedikt’s office was on the upper deck, right next to the captain’s cabin, and it spanned the width of the stern. Two guards were posted at the entrance. It seemed they were aware of her arrival, as they opened the door without asking any questions.
-
-The office was a charming room. A large table in the centre was crowded with piles of plot papers and instruments, and French windows across the back opened onto a balcony. Amidst all the beautiful decor, Benedikt was nowhere to be seen. Then she found a door camouflaged in the side wall, and she gently tapped on it.
+A large table in the centre was crowded with plot papers and instruments, and French windows across the back opened onto a balcony. Benedikt was nowhere to be seen. Then she found a door set flush in the side wall, and she tapped on it.
 
 “Yes,” came the response.
 
-She gave the door a gentle nudge, and it opened into a bedroom.
+The door opened into a bedroom.
 
-“Sorry, I was not expecting you so early.” He was perplexed and spoke in haste.
+“Sorry, I was not expecting you so early,” he said. “How is your leg now?”
 
-Sanchez avoided words and instead responded with a crinkled pair of eyes.
+“A lot better. I am down to one stick.” Her eyes were smiling.
 
-“How is your leg now?” he asked.
+“That is wonderful to hear. Let us go through the schedule for the next few days. Do not forget, you have to behave like my assistant.”
 
-“A lot better. I am down to one stick.” Her eyes were still smiling.
+He was wearing a chequered grey suit with a white shirt, and the turquoise cufflinks stood out in the pale yellow light of the cabin. She was watching him and failed to hear what he said next.
 
-“That is wonderful to hear. Let us go through the schedule for the next few days. Do not forget, you have to act and behave like my assistant.” His smile was laced with vulnerability.
+“Do you have something on your mind?” asked Benedikt.
 
-As always, Benedikt looked aristocratic. He was wearing a chequered grey suit with a white shirt, and the turquoise cufflinks stood out in the pale yellow light of the cabin. She was lost in his demeanour and failed to grasp his words.
+Sanchez blushed. “Sorry, I wasn’t paying attention.”
 
-“Do you have something on your mind?” queried Benedikt.
+He restated his point, this time without the humour. “I want to make you aware of my schedule.”
 
-Sanchez blushed and mumbled, “Sorry, I wasn’t paying attention. Did you say something?”
+She went to the centre table, trying her best to avoid his gaze. He pushed the laptop towards her. “From now on you will manage my calendar. Tomorrow is a big day. I am meeting key delegates at ten in the morning. It is their cargo we will be carrying and off-loading at various places throughout our voyage.
 
-Benedikt looked puzzled. He restated his point, only this time without the humour. “I want to make you aware of my schedule.”
+“The next two days we will be loading the cargo. I have inspection meetings with the bosun twice a day. Every day I will meet the captain at eight in the morning and in the evening. Before we leave, I am required to personally inspect the load. And I have an important dinner meeting tomorrow. You can find everything in this folder.”
 
-“Sure, let us go through it,” she said, and she went to the centre table, trying her best to avoid his gaze.
-
-He cleared his throat, pushed the laptop towards her, forced a smile and said, “From now on you will manage my calendar. Tomorrow is a big day. I am meeting key delegates at ten in the morning. It is their cargo we will be carrying and off-loading at various places throughout our voyage.
-
-“The next two days we will be loading the cargo. I have inspection meetings with the bosun twice a day. Also, every day I will meet the captain at eight in the morning and in the evening. Before we leave, I am required to personally inspect the load. And I have an important dinner meeting tomorrow. All the arrangements are made. You can find everything in this folder. Make sure you go through the details.”
-
-He pushed the folder towards her and took a pause, giving her time to browse through the plan.
-
-“I see my name in tomorrow’s dinner meeting.” She announced her observation with utmost innocence.
+She browsed through the plan. “I see my name in tomorrow’s dinner meeting.”
 
 “Can I not have dinner with you?”
 
 “From now on, direct all your calls to me,” she said, ignoring his question.
 
-He curbed whatever he had been about to say. “There will be a desk here for you tomorrow. You will occupy it for as long as you are on the ship.”
+“There will be a desk here for you tomorrow. You will occupy it for as long as you are on the ship.”
 
-Sanchez pushed the laptop aside, looked squarely at him and enquired, “So how do I go about finding my father?”
+Sanchez pushed the laptop aside and looked squarely at him. “So how do I go about finding my father?”
 
-He looked at her for a while before he responded. “When I go on my rounds, I will take you with me. Let us see if we can find any clues on the ship first. Do you have any picture of your father with you?”
+He looked at her for a while before he responded. “When I go on my rounds, I will take you with me. Let us see if we can find anything on the ship first. Do you have a picture of your father with you?”
 
-Sanchez’s eyes were full of hope. She fiddled in her purse and after a few fumbles pulled out one of the two pictures of her father she always carried. “Here, you can keep this with you.”
+She fiddled in her purse and pulled out one of the two pictures of her father she always carried. “Here, you can keep this with you.”
 
 Benedikt took the picture from her and gave it a cursory glance. Then he looked at it again, and his face turned white. It lasted no longer than a moment, but she saw it. At Helsingør she had watched that face across a poker table for a whole evening and had found nothing on it at all. Now, for the first time, she had seen it break.
 
@@ -2299,46 +2259,40 @@ He looked away from her and said, “I need to take an important call. I will be
 
 He went into his bedroom with the photograph still in his hand and closed the door behind him. A few minutes later his voice came through it. “Let us reconvene at noon. The call is taking longer than I expected.”
 
-Sanchez stood alone at the centre table, staring at the closed door. She had no clue whether there was a call at all. But she was certain now of one thing. Benedikt knew her father’s face.
+Sanchez stood alone at the centre table and looked at the closed door. She had heard no telephone ring, and her father’s photograph was on the other side of that door.
 
 ## Chapter 37
 ### 11:00 AM, Monday 21st April 2014, DAZZLE, Tallinn, Estonia
 
-Sanchez came back to her cabin confused. The frightened look on Benedikt’s face loomed in her mind, refusing to go away. The more she got entwined in her dark thoughts, the more she was convinced he knew something about her father. She went out to the balcony and sat in the armchair, staring at nothingness. The midmorning sun was fighting hard to warm the air through a vast spread of clouds, but she struggled to come out of her gloomy self.
+Sanchez came back to her cabin confused. She could not put the look on Benedikt’s face out of her mind. She went out to the balcony and sat in the armchair. The midmorning sun was fighting to warm the air through a vast spread of clouds.
 
-*Have I made a mistake trusting him? What if Maxwell was right?* She doubted every step she had taken since Lisbon.
+*Have I made a mistake trusting him? What if Maxwell was right?*
 
-While she was fighting with her predicament, the phone alarm went off. The screen flashed a reminder, “Call Stephen.” Her forced break would be over within the hour. She had a lot to get done before heading back, and calling her brother would have to wait until the evening.
+She had an hour before she was due back. She checked the door and made sure the security latch was on. She looked around for hidden cameras but could not find any. She carried the suitcase to the bathroom, laid a towel on the floor and emptied the suitcase onto it. Then she unpicked the stitches she had sewn into the lining and drew out Maxwell’s pouch. Everything he had pressed into her hand on the step in Tallinn was there.
 
-She checked the door and made sure the security latch was on. She looked around for any hidden cameras in the cabin but couldn’t find any. Swiftly, she carried the suitcase to the bathroom, laid a towel on the floor and put all her belongings on top of it. Once the suitcase was empty, she unpicked the stitches she had sewn into its lining the night before and drew out Maxwell’s pouch. She placed its contents on the dressing table. Everything Maxwell had pressed into her hand on the step in Tallinn was there.
+She checked the camera and put on the earrings. She put the pen in her pocket and the matchbox camera in her purse, tucked the rest back into the lining and repacked the suitcase.
 
-She checked the camera and, once satisfied, put on the earrings. She put the pen in her pocket and the matchbox camera in her purse, tucked the rest back into the lining and repacked the suitcase.
+Alex was waiting outside. It had been a help to have him the first time, but she detested the idea of him hanging around her all day.
 
-She looked at her watch, and it was time for her to leave. She gave her earrings a final glance in the mirror, stepped out of the cabin and locked the door firmly behind her. Alex was waiting outside. While it had been a help to have him the first time, she detested the idea of him hanging around her all day.
-
-“Now I have a fair idea about the ship. You can resume your other responsibilities.” Her tone was definitive.
+“Now I have a fair idea about the ship. You can resume your other responsibilities.”
 
 Alex looked puzzled. “Madam, this is my only work. Did I offend you by any chance?”
 
-The fretfulness in his voice was evident. She knew there was no point arguing with him and decided to take it up with Benedikt instead.
+She knew there was no point arguing with him and decided to take it up with Benedikt instead. “Forget what I said. Let us go.”
 
-“Forget what I mentioned. Let us go.”
-
-They started down the narrow passage towards the stern. Throughout the walk, her mind was racing, analysing every motive and every word. She wanted to confront Benedikt but wasn’t sure if that was a good idea. Her mind was clouded with questions, and sadly she had answers to none.
-
-The day progressed without any other noticeable episode. Benedikt came out of his bedroom composed, as if nothing had happened, and her interaction with him was restricted to a few syllables. He did not mention the photograph, and he did not give it back. The only achievement of the day was a word with him about Alex, after which the boy stopped guarding her door. Many a time she wanted to ask Benedikt about his changed demeanour, but she couldn’t muster enough courage to approach him. It was an unknown hesitation, something she was unable to comprehend.
+The day passed without any other incident. Benedikt came out of his bedroom composed, as if nothing had happened, and her dealings with him were restricted to a few syllables. He did not mention the photograph, and he did not give it back. The only thing she achieved all day was a word with him about Alex, after which the boy stopped guarding her door.
 
 * * *
 
 *10:00 PM*
 
-Around ten, Benedikt called it a day. Sanchez went back to her cabin exhausted and tried to sleep, but she tossed and turned and failed miserably. Frustrated, she took the satellite phone out onto the balcony, as Maxwell had told her, and called Stephen.
+Around ten, Benedikt called it a day. Sanchez went back to her cabin exhausted, but she could not sleep. She took the satellite phone out onto the balcony, as Maxwell had told her, and called Stephen.
 
-Stephen picked up on the first ring and blurted, “Where have you been all day?”
+Stephen picked up on the first ring. “Where have you been all day?”
 
-Sanchez was about to snap but decided otherwise, for fighting with her brother was the last thing on her mind. “I am surrounded by people all the time. I cannot call at my leisure.” Her sarcasm still spilled over despite her attempt to stay calm.
+“I am surrounded by people all the time. I cannot call at my leisure.”
 
-Stephen’s anxiety receded. They spoke for about five minutes. She told him the name of the ship and that it would sail for Ventspils early on Wednesday, and he said Maxwell would want to know both. She promised to call him again the next day and ended the call. Sleep was still defying her. She spent some time checking the photos and videos she had taken during the day. They had come out to her satisfaction, though they were only trials and had no significance.
+They spoke for about five minutes. She told him the name of the ship and that it would sail for Ventspils early on Wednesday, and he said Maxwell would want to know both. She promised to call him again the next day.
 
 * * *
 
@@ -2346,7 +2300,7 @@ Stephen’s anxiety receded. They spoke for about five minutes. She told him the
 
 Sanchez could not stay in the cabin any longer. If she was going to confront Benedikt, she decided, it would be tonight and not over breakfast. She pulled on a cardigan, took her stick and walked down the silent corridor towards the stern.
 
-The guards had gone from the office door, and the door stood ajar. The office was in darkness except for a thin line of light from the bedroom, where the camouflaged door was open a hand’s width. She was about to knock when she heard his voice. He was on the phone, and he was speaking slowly and carefully, the way a man speaks when he does not want to repeat himself.
+The guards had gone from the office door, and the door stood ajar. The office was in darkness except for a thin line of light from the bedroom, where the hidden door was open a hand’s width. She was about to knock when she heard his voice. He was on the phone, and he was speaking slowly and carefully, the way a man speaks when he does not want to repeat himself.
 
 “…a Scottish driver. Yes. From years ago… No, not the company. I know what the company says… Where the partners took him. That is what I need, nothing else…”
 
@@ -2362,211 +2316,223 @@ He turned as he said it and saw her in the doorway. For a moment neither of them
 
 “Then goodnight.”
 
-Sanchez walked back to her cabin with her heart pulsating with such vigour that she was sure he could hear it through the walls. She locked the door and stood with her back against it. A Scottish driver, from years ago. Her father had been a Scottish driver. Somebody Benedikt called the partners had taken him somewhere, and tonight Benedikt was asking a man named Oskar where. Who were the partners, and why did Benedikt Voss need to find her father in secret from his own company?
+Sanchez walked back to her cabin, locked the door and stood with her back against it. A Scottish driver, from years ago. Her father had been a Scottish driver. She took the notepad from the dressing table and wrote down the two words she had heard, *Oskar* and *partners*, and under them the date, and then she tore the page into small pieces and flushed them away.
 
 ## Chapter 38
 ### 7:30 AM, Tuesday 22nd April 2014, DAZZLE, Tallinn, Estonia
 
-For Sanchez it was a new day and a new beginning. It was an important day for both of them. While Benedikt had his meeting with the delegates, Sanchez was aiming to get the meeting secretly recorded. She had also decided to confront Benedikt about the photograph, but that she planned for later in the evening.
+It was an important day for both of them. While Benedikt had his meeting with the delegates, Sanchez meant to have it secretly recorded. The photograph she would raise with him later, in the evening.
 
-She was at her desk sharp at 7:30, thirty minutes before her reporting time. Benedikt’s meeting was not scheduled until ten. He too was in the office, checking some final reports. He had not expected her so early, but he looked pleased to see her and could not conceal the smile on his face.
+She was at her desk at 7:30, thirty minutes before her reporting time. Benedikt was already in the office, checking some final reports. He had not expected her so early, but he looked pleased to see her.
 
-He was extremely secretive about the meeting. Sanchez had no access to the reports or the documents pertaining to it. Her purpose in coming early was to find a way to be a part of it, and his presence in the office wasn’t helping her by any means. She was pulled out of her brooding by his voice. “You are quite early. If you wish, you can come back in an hour.”
+He was extremely secretive about the meeting. Sanchez had no access to the reports or the documents pertaining to it. She had come early to find a way to be a part of it, and his presence in the office was no help to her at all.
 
-Sanchez wasn’t ready for that. With some struggle, she regained her composure and put forward a question, “Am I disturbing you?”
+“You are quite early,” he said. “If you wish, you can come back in an hour.”
 
-“Not at all. You are welcome to stay.” He gave a sheepish smile.
+“Am I disturbing you?”
 
-Sanchez took advantage of his softened manner and continued, “Can I help you with anything?”
+“Not at all. You are welcome to stay.”
 
-“Thank you. I am fine for now.” And he got busy looking through some papers.
+“Can I help you with anything?”
 
-Her attempt to get involved was politely put down. She was at her wits’ end when his sharp voice jolted her.
+“Thank you. I am fine for now.” And he got busy with his papers.
 
-“Can you check the main conference room? Make sure everything is in order.”
+She was at her wits’ end when he looked up again. “Can you check the main conference room? Make sure everything is in order.”
 
 “Sure.”
 
-She beamed with renewed hope and headed straight to the conference room, one deck up, as fast as her stick would allow. The guards watching the area were puzzled to see her. She explained the reason for her visit and asked them to open the room. The guards scanned her, and once satisfied, they let her in.
+She went straight to the conference room, one deck up, as fast as her stick would allow. The guards were puzzled to see her. She explained the reason for her visit, and they scanned her and let her in.
 
-The room had been the ferry’s passenger lounge, and it was a spacious hall. There was a large rectangular table in the centre, which could easily seat twenty people. She called the technical officer and got the AV and video checked. The chief steward was called next to check the food arrangements. After she was satisfied with the layout and amenities, she settled down to execute her plan.
+The room had been the ferry’s passenger lounge. A long table in the centre could easily seat twenty people. She called the technical officer and had the AV and video checked, and then the chief steward to check the food arrangements. When they had gone, she settled down to her plan.
 
-In the far left corner, there was a side table holding the AV equipment. She placed the pen, which was a stealth voice recorder, below the hinge of the AV frame, where it blended perfectly with the colour of the table. As she was checking the position of the pen, Benedikt’s voice startled her. He was standing right next to her. Her face turned pale as if she had been caught red-handed.
+In the far left corner there was a side table holding the AV equipment. She placed the pen, which was a voice recorder, below the hinge of the AV frame, where it blended with the colour of the table. As she was checking its position, Benedikt’s voice startled her. He was standing right next to her.
 
 “What is going on?”
 
-With every passing moment, Sanchez was becoming more fidgety, as if she had fallen into an abyss. Before she could collect her thoughts, he continued, “I have some work for you. Are you done checking things here?”
+Her face turned pale. Before she could collect her thoughts, he continued, “I have some work for you. Are you done checking things here?”
 
-Those words fell on her ears like blessings. Though she was relieved, she realised her flustered state might put her back in danger.
-
-“Everything is fine. I have done a thorough check,” she blurted.
+“Everything is fine. I have done a thorough check.”
 
 “Good. Let us head back to the office. I need some help.” He left the room promptly.
 
-Sanchez was drenched in sweat. Fortunately, the conference room lights were dimmed, which worked to her advantage. She headed to the restroom, washed her face and went straight back to the office. On the way, only one concern crowded her mind, how she would get into the room again before the meeting. In the entire hullabaloo, she had forgotten to turn the recorder on.
+Sanchez was drenched in sweat. Fortunately the lights in the conference room were dimmed. She washed her face in the restroom and went straight back to the office. On the way only one question crowded her mind, how she would get into the room again before the meeting. In the fright, she had forgotten to turn the recorder on.
 
 ## Chapter 39
 ### 8:30 AM, Tuesday 22nd April 2014, DAZZLE, Tallinn, Estonia
 
-Benedikt was furious. He couldn’t come to terms with what his own face had done when Sanchez showed him the photograph. It was shocking enough to find out who her father was, but the fact that he had shown it, and to her of all people, made him frantic. For years his face had given nothing away at any table, and it had failed him in his own office over a small picture of a smiling man.
+Benedikt was furious with himself. For years his face had given nothing away at any table, and it had failed him in his own office over a small picture of a smiling man.
 
-He knew who her father was now. He knew how the man had been taken, and he knew his own part in it, which he had never spoken of to anyone. What he did not know was where the Russians had put him, or whether he was still alive. Last night he had asked Oskar, as quietly as he could, and Oskar had promised nothing. He could not ask Ayr without putting her name in front of Evan Slater. And when he had turned from the telephone, she had been standing in his doorway. He wasn’t naïve enough to ignore the storm brewing inside Sanchez’s mind, and he knew sooner or later it would break over him.
+He knew who her father was now. He knew how the man had been taken, and he knew his own part in it, which he had never spoken of to anyone. What he did not know was where the Russians had put him, or whether he was still alive. Last night he had asked Oskar, as quietly as he could, and Oskar had promised nothing. He could not ask Ayr without putting her name in front of Evan Slater. And when he had turned from the telephone, she had been standing in his doorway.
 
-His meeting was in a little over an hour, and he had many unfinished jobs to complete to make it a success. Knowing he couldn’t afford to muddle it, he forced his attention back to work. He was not too long into it when he saw Sanchez walking back into the office. He was a tad impatient, and to hide his nervousness, he said, “I need some help. Can you help me tally a few accounts for my meeting today?”
+His meeting was in a little over an hour, and he forced his attention back to work. He was not long into it when Sanchez walked back into the office. To hide his nervousness, he said, “I need some help. Can you help me tally a few accounts for my meeting today?”
 
 * * *
 
-“Sure, no problem. I am good at accounting,” Sanchez said, and she took the file from his outstretched hands.
+“Sure. I am good at accounting,” Sanchez said, and she took the file from his outstretched hand.
 
-She couldn’t believe she had got her hands on the file she had been eyeing since morning. *Maybe he was never keeping it away from me*, she thought as she settled at her desk to work on it.
-
-She opened the file and started flipping through it, and what she found left her agape. Behind the loading tallies was an insurance schedule for the voyage, headed *Sub Rosa*, and there was one entry she read three times.
+She opened it at her desk and started flipping through it. Behind the loading tallies was an insurance schedule for the voyage, headed *Sub Rosa*, and there was one entry she read three times.
 
 *Lots 14–22. Garden statuary, reproduction. Declared value €3,400. Insured value €2.1 million. Consignee Kupala Holdings, Smolensk. Authorised E. Slater.*
 
-Nobody insured garden ornaments worth a few thousand euros for two million. And the name at the bottom was the name John Patterson had given her in Ayr, the man whose office had sent her father the package. She knew right at that moment that the file could be used against TransPacific in a court of law. She had to get it out of the room, but with Benedikt sitting across from her it was almost impossible. She kept brooding for a while but failed to form any meaningful strategy, and when she was convinced nothing could be done, she pulled herself back to her work.
+Nobody insured garden ornaments worth a few thousand euros for two million. And the name at the bottom was the name John Patterson had given her in Ayr, the man whose office had sent her father the package. She had to get a copy of it, but with Benedikt sitting across from her it was impossible.
 
-She had been at it for over twenty minutes when Benedikt left the room to attend a phone call. She was so engrossed that she failed to notice him stepping out. It took her another ten minutes to finish the tally, and when she finally looked up from the file, Benedikt was nowhere to be seen. For a moment she was dazed, but as the reality sank in, a frisson of hope swept through her.
+She had been at the tally for over twenty minutes when Benedikt left the room to take a phone call. It took her another ten minutes to finish, and when she looked up from the file, he had not come back.
 
-She took a few deep breaths to calm herself. She gave a hurried glance around the room to make sure no one was watching her. Once convinced, she took the matchbox camera out of her purse. It looked like a box of hotel matches and was small enough to hide in her fist. She hastily placed it inside the file, and with extreme caution started taking pictures of the pages.
+She glanced around the room to make sure no one was watching her. Then she took the matchbox camera out of her purse. It looked like a box of hotel matches and was small enough to hide in her fist. She placed it inside the file, and with extreme caution she photographed the pages.
 
-After she had taken the last snapshot, she tried rearranging the pages, and in her haste the file slipped from her hand. She leaned forward to catch it midway, but to her horror she lost her grip on the camera. Both the camera and the file came crashing to the wooden floor with a thumping sound, and there were scattered pages all around her.
+After the last one, she tried to put the pages back in order, and in her haste the file slipped from her hand. She leaned forward to catch it and lost her grip on the camera. Both the camera and the file came crashing to the wooden floor, and there were pages all around her.
 
-Hearing the noise, Benedikt stepped back inside. Sanchez froze and her mind went numb. She recovered quickly, and before Benedikt could offer any help, she pushed the camera under a small heap of paper.
+Hearing the noise, Benedikt stepped back inside. Sanchez froze. Before he could offer any help, she pushed the camera under a small heap of paper.
 
-Benedikt was still on the phone. He put the call on hold and enquired, “Is everything all right?”
+He was still on the phone. He put the call on hold. “Is everything all right?”
 
-She tried hard to conceal her anxiety and blurted, “I accidentally dropped the file. I am sorry.”
+“I dropped the file. I am sorry.”
 
-“Let me help you.” He bent down to collect the dispersed papers.
+“Let me help you.” He bent down to collect the papers.
 
-It was happening too fast, too soon. Benedikt was approaching the stack of papers where the camera was stashed. Not sure what to do next, she swept the other scattered pages towards the same stack.
+He was reaching for the heap where the camera was hidden. Not sure what else to do, she swept the other pages towards the same stack.
 
-Benedikt collected his share and put it on top of her pile, and before she could react, he balanced the phone between his ear and shoulder and lifted the entire stack to place it on the table. As luck would have it, the camera slid through the pile and fell to the floor. His hand went out towards it, and in that act the phone slipped from his shoulder and crashed on the floor.
+Benedikt put his share on top of hers, and before she could stop him, he balanced the phone between his ear and shoulder and lifted the whole stack onto the table. The camera slid out through the pile and fell to the floor. His hand went out towards it, and in that act the phone slipped from his shoulder and crashed down beside it.
 
-His attention went at once to the phone. Taking advantage of the moment, like a hawk stooping towards its prey, she swooped on the camera and pushed it into her jeans pocket. Benedikt was turning the phone over in his hands. Once he found it working, he stepped out of the room to continue his conversation without a word.
+His attention went to the phone. Sanchez swooped on the camera and pushed it into her jeans pocket. Benedikt turned the phone over in his hands, and once he found it working, he stepped out of the room to continue his conversation without a word.
 
-Sanchez had narrowly escaped a disastrous mishap. Perspiration covered her from head to toe. She told herself that his hand had gone out for the falling phone and that he had been too busy with it to notice anything else. She knew she wouldn’t have survived if he had got hold of the camera.
-
-After she regained her senses, she arranged the file neatly, rechecked her work and put her final report on the table for review. Her only hope was that Benedikt had not noticed the strange-looking device at all.
+Perspiration covered her from head to toe. She told herself that his hand had gone out for the falling phone and that he had been too busy with it to notice anything else. She arranged the file neatly, rechecked her work and put her report on the table for review.
 
 * * *
 
 *9:45 AM*
 
-The delegates’ arrival time was fast approaching. Benedikt went through the file one final time. Once satisfied with the workings, he said, “I have to go down to receive the visitors. Would you mind taking the documents to the conference room?”
+Damian had come aboard at nine with the escort team to see to the delegates’ security. He had nodded to her in the office and said nothing, and she had felt his eyes on her back as she went out.
 
-Since she had left the conference room, Sanchez had been plotting innumerable ways to be in that room again. Never once had she thought it would come to her so easily. She looked away from him to conceal her excitement, grabbed the file and left as fast as her stick would allow.
+Benedikt went through the file one final time. “I have to go down to receive the visitors. Would you mind taking the documents to the conference room?”
 
-As she turned the corner on the deck above, she saw the guards outside the room, standing in their usual vigilant posture. She pretended to ignore their presence and went past them to open the door.
+Sanchez looked away from him to hide her relief, took the file and left as fast as her stick would allow.
 
-“Sorry, miss, no one can go in.” The guard’s voice was firm as he raised his hand to block her.
+The guards outside the room raised a hand to stop her. “Sorry, miss, no one can go in.”
 
-“Mr Voss wants the files on the table for the meeting. May I?” she asked with genuine urgency.
+“Mr Voss wants the files on the table for the meeting. May I?”
 
 “You stay here. I will go in with her,” the guard told his colleague, and he opened the door.
 
-The guard stood at the entrance of the room, keeping a close eye on her. She moved around the table, pretending to check the functioning of the gadgets. When she was next to the AV system, she swiftly reached for the pen hidden below the hinge and turned the switch on. Satisfied with her work, she thanked the guard and left the room. The recorder could run for a couple of hours. Her hope was to get enough evidence to bring TransPacific’s trafficking to a final halt.
+He stood at the entrance and watched her. She moved around the table, checking the gadgets, and when she was beside the AV system she reached under the hinge and turned the pen on. The recorder could run for a couple of hours. She thanked the guard and left.
 
-The visitors arrived in four chauffeur-driven limousines with dark glass. A team of well-built escorts leapt out of the cars and quickly formed a shielded lane to the gangway. The delegates, dressed in dark suits, walked up it, and Benedikt greeted each one of them personally at the entrance and led them to the lifts.
+The visitors arrived in four chauffeur-driven limousines with dark glass. A team of well-built escorts formed a lane to the gangway, and the delegates, in dark suits, walked up it. Benedikt greeted each of them at the entrance and led them to the lifts.
 
-The meeting lasted for over an hour. While it was in progress, no one was allowed to enter the room, not even the chief steward, who served the guests only after the meeting had concluded.
+The meeting lasted for over an hour. No one was allowed into the room, not even the chief steward, who served the guests only after it was over.
 
 * * *
 
 *1:15 PM*
 
-The delegates left the ship at a quarter past one, with brisk steps and in complete discretion, as they had arrived. Soon after, Benedikt appeared in the office with a broad grin, suggesting that the meeting had gone according to plan.
+The delegates left the ship at a quarter past one, as discreetly as they had arrived. Soon after, Benedikt came into the office with a broad grin.
 
-“In one hour, we should go down and check the loading with the bosun. Also, if you could check the payment file once, that would be a big help. I need to clear their dues. We will be sailing soon, and I want nothing left for tomorrow.”
+“In one hour, we should go down and check the loading with the bosun. Also, if you could check the payment file once, that would be a big help. I need to clear their dues.”
 
-Sanchez’s mind was working hard to find a way into the conference room again. She made a faint attempt. “I am not able to locate my notebook. Have you seen it in the conference room? Maybe I left it there by accident.”
+“I am not able to locate my notebook,” Sanchez said. “Have you seen it in the conference room? Maybe I left it there.”
 
-“I have not seen any. Why do you not go and look for yourself?” His tone was overtly casual.
+“I have not seen any. Why do you not go and look for yourself?”
 
-The trick worked. The guards were still there and gave her a confused look. She told them about her lost notebook. They were hardly bothered now that the delegates were gone, and they opened the door without any hesitation. She went straight to the side table, grabbed the pen, switched the recorder off and left the room promptly.
+The guards were still there. They gave her a confused look, but now that the delegates were gone they opened the door without any hesitation. She went straight to the side table, took the pen, switched the recorder off and slipped it into her pocket.
 
-In the corridor she took a deep breath. The pen was in one pocket and the matchbox camera in the other, and between them they held the meeting and the insurance schedule. She had no clue yet whether either would lead her to her father.
+When she turned round, Damian was standing in the doorway.
 
-When she came back into the office, Benedikt looked up from his papers. His eyes rested on her for a moment, and then he went back to his work without a word.
+“Lost something, Miss Lind?”
+
+“My notebook.”
+
+“There’s no notebook in here. I’ve been over this room twice.” The room was cool, but his forehead was shining. “The lads on the door say this is your third visit today.”
+
+“Mr Voss sent me each time.”
+
+“Did he.” He looked past her at the side table, and then at the pocket where her hand still was. “Turn out your pockets for me. Then we’ll both feel better.”
+
+Sanchez did not move. The pen was under her fingers, and the matchbox camera was in her other pocket.
+
+“Damian.”
+
+Benedikt was in the corridor behind him.
+
+“Chief, I only want a look at –”
+
+“Your car is waiting to take you back to town. The office will not run itself.” Benedikt did not look at Sanchez. “Miss Lind, the payment file.”
+
+Damian held his ground for a moment. Then he said, “Chief,” and went, and Benedikt walked with him to the lifts without another word.
+
+When she came back into the office, Benedikt was at his desk. His eyes rested on her for a moment, and then he went back to his work and did not ask her about the notebook.
 
 ## Chapter 40
 ### 6:00 PM, Tuesday 22nd April 2014, Tallinn, Estonia
 
-Sanchez had spent the afternoon at the loading dock with Benedikt, and the visit had been uneventful. Everything was happening as per the schedule. For her it was frustrating, to say the least. There was no sign of her father anywhere on the ship, and she had no plan for starting any enquiries with the crew. With Benedikt’s strange behaviour, her inability to question the workers and no plan for going forward, she was like a boat without an anchor, drifting to oblivion.
+Sanchez had spent the afternoon at the loading dock with Benedikt and the bosun, and everything was happening as per the schedule. There was no sign of her father anywhere on the ship, and she had no way of starting enquiries with the crew.
 
-It was around six when Benedikt announced it was time to head out for dinner. There was plenty of work to wrap up before the voyage could begin, and they decided to finish it after dinner. The chauffeur was waiting right outside the gangway, and it was a short drive into the Old Town. The restaurant was in a medieval merchant’s house on one of the cobbled lanes, with vaulted ceilings, thick stone walls and a candle burning on every table.
+Around six, Benedikt announced it was time to head out for dinner. The chauffeur was waiting at the foot of the gangway, and it was a short drive into the Old Town. The restaurant was in a medieval merchant’s house on one of the cobbled lanes, with vaulted ceilings, thick stone walls and a candle burning on every table.
 
-Benedikt, as always, took control of the menu and ordered the drinks and the food. With great interest, he described the house and the dishes it was known for, but it all fell on deaf ears. Her mind was searching for the right moment or the right words to heave away her burden.
+Benedikt, as always, ordered the drinks and the food, and he described the house and the dishes it was known for. She heard very little of it. Twice he seemed about to ask what was wrong, and twice he let it go.
 
-He must have seen that she wasn’t with him. Twice he seemed about to ask about her pensive look, and twice he let it go.
+Sanchez broke the silence. “Did you know my dad?”
 
-Sanchez decided to break the silence. She didn’t mince her words as she asked, “Did you know my dad?”
-
-Benedikt was caught off guard. After a long, uncomfortable pause, he responded, “No. Why do you ask?”
+After a long pause, he answered, “No. Why do you ask?”
 
 As he said it, his left thumb went to the cuff of his right sleeve and rested there on the turquoise cufflink. It was a small movement, and she had never seen him make it before.
 
-“Your face turned pale when I showed you his picture. Listen, even if it is horrible, please tell me. You know I have been on this never-ending hunt for years now. Please help me.” Her voice trailed off.
+“Your face turned pale when I showed you his picture. Listen, even if it is horrible, please tell me. I have been looking for him for years. Please help me.”
 
-For a moment he looked lost. He seemed to have no clue how to answer her.
+For a moment he looked lost.
 
 “I never knew your father, but I have seen him once.” The words came out of him slowly, as if he had not meant to say them.
 
-He paused and watched her face. Then he continued hurriedly, “It was not in my control. He was caught in Belarus, and I happened to be there on a regular business trip. That is all I know.”
+He watched her face. Then he continued hurriedly, “It was not in my control. He was caught in Belarus, and I happened to be there on a regular business trip. That is all I know.”
 
-Benedikt couldn’t face her, and to avoid her constant gaze, he looked away. Sanchez was barely holding herself together.
+He looked away from her. Sanchez was barely holding herself together.
 
-“Is he alive?” Her voice trembled with fear.
+“Is he alive?”
 
-“We are in an illicit trade, but we are not murderers. I do not want to give you any false hope, but I firmly believe he is alive.” There was uncertainty in his voice.
+“We are in an illicit trade, but we are not murderers. I do not want to give you any false hope, but I believe he is alive.”
 
-Sanchez wasn’t convinced, but she knew her options were limited. She stopped questioning him. She had lost her appetite, and after a quiet dinner they headed back to the ship. He advised her to get some rest, but she refused, and they worked until midnight and wrapped up the left-over work.
+Sanchez was not convinced, but she stopped questioning him. She had lost her appetite, and after a quiet dinner they went back to the ship and worked in the office until midnight.
 
-All evening one thought kept returning to her. Last night she had heard him ask a stranger on the phone where a Scottish driver had been taken. Tonight he had told her that Belarus was all he knew. She could not decide which of the two was the lie, or whether both of them were true.
+Last night he had asked a stranger on the phone where a Scottish driver had been taken. Tonight he had told her that Belarus was all he knew.
+
+When she let herself into her cabin, the suitcase was on the luggage rack where she had left it, but its zip faced the wall. She knelt and felt inside the lining. The pouch was still there, and nothing in it was missing.
+
+The guard at the end of the corridor told her that nobody had been up all evening, except the Dane from the Tallinn office, Mr Holm, who had come back for a file at about eight and gone away again.
 
 ## Chapter 41
 ### 4:00 AM, Wednesday 23rd April 2014, DAZZLE, Tallinn, Estonia
 
-Sanchez couldn’t sleep well. She spent most of the night weighing what she could do next, and the more she weighed the options, the more flaws she found. She had only just drifted off when the ship’s loud whistle woke her. DAZZLE was leaving Tallinn on its day-long passage to Ventspils.
+Sanchez had only just drifted off when the ship’s whistle woke her. DAZZLE was leaving Tallinn on its day-long passage to Ventspils.
 
-She slipped out of bed, splashed some water on her face and dressed casually. For the first time since Lisbon, she left the stick behind in the cabin. Her leg held, though she still walked with a slight limp. With her father’s photograph in her purse, she headed down towards the cargo decks.
+She dressed quickly. She left the stick behind in the cabin. Her leg held, though she still walked with a slight limp. With her father’s photograph in her purse, she headed down towards the cargo decks.
 
-On the stairs she met a young deckhand coming up with a coil of rope over his shoulder. She stopped him, held out the photograph and asked him whether he had ever seen this man on the ship. The boy barely looked at it. He shrugged, said something in Estonian and carried on up the stairs without breaking his step. She had no clue whether he had not understood her or had not wanted to.
+On the stairs she met a young deckhand coming up with a coil of rope over his shoulder. She held out the photograph and asked him whether he had ever seen this man on the ship. The boy barely looked at it. He shrugged, said something in Estonian and carried on up the stairs without breaking his step.
 
-She had expected nothing better from a boy of his age. Whoever had known her father on this ship would have been aboard for years. The oldest hand she had seen was the bosun, Finch, whom she had met at the loading dock with Benedikt the afternoon before. He was an Englishman in his fifties, and he ran the cargo as if the ship belonged to him.
+Whoever had known her father on this ship would have been aboard for years. The oldest hand she had seen was the bosun, Finch, whom she had met at the loading dock with Benedikt the afternoon before. He was an Englishman in his fifties, and he ran the cargo as if the ship belonged to him.
 
-It was a quiet morning. The loading area was missing the hullabaloo of the past few days. She approached the entrance with discreet steps. Two armed guards from the ship’s private security team stood at the door. They were curious to see a lady at such an ungodly hour, but they weren’t alarmed, for they had seen her there with Benedikt before.
+Two armed guards from the ship’s private security team stood at the door of the loading area. They were curious to see a lady there at such an hour, but they had seen her with Benedikt the day before.
 
-“I am here to see the bosun on an important matter.” She was not sure he was there.
+“I am here to see the bosun on an important matter.”
 
-“He’s at his desk,” one of them said, and she was let inside the cargo area.
+“He’s at his desk,” one of them said, and he let her through. As she passed, she saw the other take a small notebook from his breast pocket and write something in it.
 
-She knew this was the easy part. The hard part was to convince Finch to speak.
+Finch looked tired. He was going through a file when she tapped on his door, and he looked up at her with a stern stare. He recognised her, but he gave no sign of it.
 
-Finch looked tired. The commotion of the last few days had worn him down. He was going through a file when her gentle tap on the door interrupted him, and he looked up at her with a stern stare. He certainly recognised her, but he gave no sign of it.
-
-Sanchez started gently. “Would you have a few minutes for me?”
+“Would you have a few minutes for me?”
 
 “What’s it about?”
 
-Sanchez stepped inside his office, took her father’s picture from her purse and asked, “Do you know this person?”
+Sanchez stepped inside, took her father’s picture from her purse and asked, “Do you know this person?”
 
-She looked straight at him and waited for his response. Finch glanced at the picture and immediately took his eyes off it. “Please leave,” he said in a flat tone.
+Finch glanced at the picture and at once took his eyes off it. “Please leave.”
 
-Sanchez wasn’t surprised. She had been expecting a response along the same lines.
+“I mean no harm, and whatever you say will be off the record. Please, anything at all would help.”
 
-“I mean no harm, and whatever you say will be off the record. Please, any bit of information would be a big help.” She maintained her composure.
+His voice rose until he was almost shouting. If she did not leave his office that minute, he said, he would have her put off the ship at Ventspils, Mr Voss’s assistant or not.
 
-By now Finch had lost his patience. His voice rose until he was almost shouting. If she did not leave his office that minute, he said, he would have her put off the ship at Ventspils, Mr Voss’s assistant or not.
+Sanchez left. Finch might complain to Benedikt, but that was the least of her worries. He had looked at the photograph for less than a second, and it had been enough for him. Finch knew her father.
 
-Sanchez had no option but to leave. There was a strong possibility of Finch complaining to Benedikt, but that was the least of her worries.
+Back in her cabin, she latched the door, turned her laptop on and downloaded all the images and the recording from her gadgets. She put in her earpiece and played the audio from the conference room.
 
-Though she had made no progress, one thing was certain. Finch knew her father. He had looked at the photograph for less than a second, and it had been enough for him.
-
-It was still dark, and except for the sailors on watch, the whole ship was in deep slumber. Sanchez’s tiredness had surprisingly vanished. Back in her cabin, she turned her laptop on and carefully downloaded all the images and videos from her gadgets. She was curious to learn what had transpired in the meeting room. She put on her earpiece and played the audio recording from the conference room.
-
-They were mostly discussing the loads, the money and some future deals. She fast-forwarded the recording, listening for anything that could lead her to her father, but there was nothing. Then, near the end of the meeting, a telephone rang in the room, and she heard Benedikt put the call on the speakerphone.
+They were mostly discussing the loads, the money and some future deals. She fast-forwarded, listening for anything that could lead her to her father, but there was nothing. Then, near the end of the meeting, a telephone rang in the room, and she heard Benedikt put the call on the speakerphone.
 
 The voice that came out of it was clipped and a tad annoyed, the voice of a man who was not used to being kept waiting. She had first heard it nearly two years ago, in the conference room at the top of TransPacific’s building in Ayr, on the day she won the contest, and she had known it through the glass of his outer office for sixteen months after that.
 
@@ -2574,22 +2540,20 @@ The voice that came out of it was clipped and a tad annoyed, the voice of a man 
 
 “Thank you, Mr Slater,” Benedikt said.
 
-Sanchez stopped the recording and played the line again, and then a third time. She had no clue what Mỹ Sơn was. But the man whose office had sent her father the package was on her laptop, in his own voice, approving whatever was lying in the hold beneath her feet.
+She had no clue what Mỹ Sơn was. She stopped the recording and played the line again, and then a third time.
 
 ## Chapter 42
 ### 10:00 AM, Wednesday 23rd April 2014, DAZZLE, off Hiiumaa, Estonia
 
-Benedikt’s aggravation was extreme. Ever since Sanchez had boarded the ship, it had been nothing but a series of mishaps. It was never part of his plan to stir her emotions, and the more he tried mending the situation, the worse it became. He was convinced that the only way he could restore her lost trust was by finding her father, but it wasn’t an easy task. A small enquiry could alarm the executives in Ayr, which would do more harm than good. He had to carry out his investigation with utmost secrecy, and so far Oskar had given him nothing. And above all, the fear of Sanchez coming to know what he knew about her father was unsettling him.
+Benedikt was at his desk when the siren went. He picked up his hard hat and hurried outside. The crew were running aft. A load had shifted on the vehicle deck, and one of the deckhands, a young Estonian, had been caught beneath it. By the time Benedikt reached the stern, the boy was lying on the open deck with the ship’s doctor kneeling over him. His left leg looked almost smashed.
 
-As he dwelt on this predicament, the screaming siren broke his quiet brooding. He picked up his hard hat and rushed outside to find the reason behind the alarm. A swarming crowd was rushing aft. Upon enquiring, he learned that a load had shifted on the vehicle deck and one of the deckhands, a young Estonian, had been caught beneath it. By the time Benedikt reached the stern, the boy was lying on the open deck with the ship’s doctor kneeling over him. His left leg looked almost smashed.
+The crew had packed themselves around the doctor so tightly that he could hardly move. Before Benedikt could say a word, a small figure pushed through them from the other side. It was Sanchez, limping slightly, and she turned round and shouted, “Please, all of you, let the doctor do his job. Give him some room.”
 
-The crew had packed themselves around the doctor so tightly that he could hardly move. Before Benedikt could say a word, a small figure pushed through them from the other side. It was Sanchez, limping slightly, and she turned around and shouted at the top of her lungs, “Please, all of you, let the doctor do his job. Give him some room.”
+That worked, and the men drew back. Benedikt watched Finch and two others lift the boy onto a stretcher and carry him towards the dispensary, with Sanchez walking beside them. She did not look at Benedikt once.
 
-That worked, and the men started dispersing. Benedikt watched Finch and two others lift the boy onto a stretcher and carry him towards the dispensary, with Sanchez walking beside them. She did not look at Benedikt once.
+He went up to the bridge. Captain Rebane was on the telephone to the dispensary, and he put the receiver down with a grave face.
 
-He went up to the bridge. Captain Rebane was already on the telephone to the dispensary, and he put the receiver down with a grave face.
-
-“The doctor asks if we can turn back to Tallinn,” the captain informed him. “He says he can hold the boy for a couple of hours at the most. After that he will lose the leg, perhaps more.”
+“The doctor asks if we can turn back to Tallinn. He says he can hold the boy for a couple of hours at the most. After that he will lose the leg, perhaps more.”
 
 Benedikt knew the answer before he gave it. They were six hours out of Tallinn, and Ventspils was eleven hours ahead. Turning the ship would change nothing for the boy. There was only one way to get him to a hospital in time, and the captain knew it as well as he did.
 
@@ -2597,17 +2561,17 @@ Benedikt knew the answer before he gave it. They were six hours out of Tallinn, 
 
 Rebane shook his head. “We are in Estonian waters, Mr Voss. A helicopter from Tallinn is the Border Guard. They will put their people on my deck, and you know what we carry in the hold. I will not ask for it.”
 
-Benedikt did not argue with him. He went back to his office and stood at the window, staring at the grey water.
+Benedikt did not argue with him. He went back to his office and stood at the window, looking at the grey water.
 
 The door flew open without a knock. Sanchez stood there, pale and breathing hard. “You need to turn the ship around. Otherwise the worker will die.”
 
-“Some things are beyond my control,” he said in a flat voice. “I am sorry for him, but turning the ship will not save him.”
+“Turning the ship will not save him. I am sorry for him, but some things are beyond my control.”
 
-“Listen, if that worker dies, I will never forgive you.” She was trembling with anger, and she stormed out of the room without waiting for his response.
+“If that worker dies, I will never forgive you.” She walked out without waiting for his answer.
 
 Benedikt was alone. He knew exactly what a Border Guard helicopter would mean. There would be a winchman on the deck, perhaps an officer with him, and questions about the ship and its papers. Lots 14 to 22 of Sub Rosa were lying in the hold below that deck, declared as garden statuary. One curious officer, one glance at the wrong manifest, and the whole route would be finished, and with it everything he had built in four years. Evan would want to know who had called them, and the answer would be him.
 
-Despite all this, he could not stop thinking about the boy. He had stood by once before, years ago, when standing by had been the easy thing to do, and he had never forgiven himself for it. He had told no one, and he had learned to live with it. Now a boy was bleeding in the dispensary, and a girl who had no reason to trust him had come to ask him for the one thing that was his to give. For the first time in years, he found that he did not care what it would cost.
+Still he could not stop thinking about the boy. He had stood by once before, years ago, when standing by had been the easy thing to do, and he had never forgiven himself for it. He had told no one, and he had learned to live with it. Now a boy was bleeding in the dispensary, and a girl who had no reason to trust him had come to ask him for the one thing that was his to give.
 
 He picked up the telephone and rang the bridge. “Captain, call the Border Guard. Ask for a medical helicopter. If anyone in Ayr asks, the decision was mine and mine alone.”
 
@@ -2615,190 +2579,180 @@ There was a long silence on the other end. “Yes, Mr Voss.”
 
 * * *
 
-Sanchez was back in the dispensary with Finch and the doctor. The heavy sedation had put the worker in a numb state, and though the flow of blood had slowed, he was still in deep danger.
+Sanchez was back in the dispensary with Finch and the doctor. The sedation had put the boy to sleep, and though the bleeding had slowed, he was still in danger.
 
-“He has lost a lot of blood. I need a few volunteers to donate,” the doctor announced.
+“He has lost a lot of blood. I need a few volunteers to donate,” the doctor said.
 
-“Can he survive until evening?” Latvia was still ten hours away, and Finch looked worried.
+“Can he last until evening?” Finch asked. Latvia was still ten hours away.
 
 “I doubt it. He needs a hospital.”
 
-A deep voice broke into their conversation. It was Benedikt, who had appeared in the doorway. “I have arranged for a medical helicopter. It will be here within the hour. Take him aft to the winching deck.”
+Benedikt appeared in the doorway. “I have arranged for a medical helicopter. It will be here within the hour. Take him aft to the winching deck.”
 
-Everyone in the room was taken by surprise. The doctor was the first to recover, and he thanked Benedikt warmly. Finch followed, and he looked genuinely moved by the unexpected gesture.
+The doctor was the first to recover, and he thanked Benedikt warmly. Finch followed, and he looked genuinely moved.
 
 “Do not thank me. Thank the lady. She made this happen.” He left as quietly as he had arrived.
 
 What followed puzzled Sanchez at first. Benedikt cleared the stern deck of everyone but the doctor, Finch and the stretcher party. He sent the armed guards below with their weapons, and he had the hatch covers checked and closed. Then he stood alone by the rail with his hands behind his back and waited. When the helicopter of the Estonian Border Guard came low over the water, the noise was deafening and the downdraught flattened the sea around the ship. A winchman came down on the wire with a stretcher, and after him a second man in uniform who walked straight to Benedikt. Sanchez watched them talk. Benedikt was courteous and completely still, and he handed over a folder of ship’s papers when he was asked. The officer glanced through it, looked for a while at the closed hatches, and handed it back. Only then did she understand what Benedikt had risked, and that he had known it when he made the call.
 
-Within twenty minutes the worker was in the air and on his way to Tallinn. The helicopter shrank to a dot over Hiiumaa, and the men went back to their work.
+Within twenty minutes the boy was in the air and on his way to Tallinn. The helicopter shrank to a dot over Hiiumaa, and the men went back to their work.
 
-Finch stayed behind by the rail. He looked ashamed of the way he had treated her that morning. He thanked her in a sheepish manner and turned away to talk to the doctor, mostly out of embarrassment.
+Finch stayed behind by the rail. He thanked her awkwardly for what she had done, without meeting her eyes, and turned away to talk to the doctor.
 
 * * *
 
 *11:30 AM*
 
-The door to Benedikt’s suite was wide open. Sanchez was exhausted from the morning ordeal, and though she dreaded meeting him, she dragged herself into his office. There was not a soul around. She tapped on the bedroom door a few times, but there was no response, so she sat at her desk and busied herself with some random files. She was lost in her thoughts when she heard his voice. He was standing right in front of her, looking at her with great interest.
+The door to Benedikt’s office was wide open, and there was no one inside. Sanchez sat at her desk and busied herself with some files until she heard his voice. He was standing right in front of her.
 
-“I truly appreciate what you did. Thank you.” She took a brief pause and continued, “And I am sorry for the way I behaved.” She took her eyes away from him, half embarrassed and half nervous, and she saw him smile.
+“I truly appreciate what you did. Thank you,” she said. “And I am sorry for the way I behaved.”
 
-“You know, you are changing me as a person. I hardly remember when I last did any good. I do not know if it is a change for the better or for the worse, but I want to thank you for discovering a new me.”
+“You know, you are changing me as a person. I hardly remember when I last did any good. I do not know if it is a change for the better or for the worse, but I want to thank you for it.”
 
-Perhaps he saw that she was not comfortable, for he changed the topic. “We have many hours yet before Latvia. Why do you not take some rest?”
+Perhaps he saw that she was not comfortable, for he changed the subject. “We have many hours yet before Latvia. Why do you not take some rest?”
 
-Sanchez was relieved to find her escape, and she walked back to her cabin. She had come aboard to use this man, and in one morning he had risked his ship and his route because she had asked him to. Was it the boy he had saved, or was it her? And if it was her, what would he do on the day he learned why she was really on his ship?
+She stood up and went to the door. She had come aboard to use this man, and in one morning he had risked his ship and his route because she had asked him to. She did not look back, though she knew he was still standing by her desk.
 
 ## Chapter 43
 ### 8:00 PM, Wednesday 23rd April 2014, DAZZLE, Ventspils, Latvia
 
-Sanchez was in the armchair of her cabin when the captain announced that the ship would dock at Ventspils within the hour. She pushed herself out of her futile brooding. Before anything else, she had one job to finish. She made sure the door was latched and the curtains drawn across the balcony. Then she put the Latvian SIM card she had bought in Tallinn on Sunday into her phone, connected it to the laptop and waited for the coast to come within reach. After a few attempts, the network appeared. She uploaded all the videos and pictures from her gadgets, and the recording from the conference room, to her private account. The speed was painfully slow, and it took her longer than she had expected. She checked the uploaded files, and once convinced, she deleted them permanently from the camera and the laptop. She threw herself on the bed, and for the first time in days she felt light.
+Sanchez was in the armchair of her cabin when the captain announced that the ship would dock at Ventspils within the hour. She had one job to finish first. She latched the door and drew the curtains across the balcony. Then she put the Latvian SIM card into her phone, connected it to the laptop and waited for the coast to come within reach. After a few attempts the network appeared. She uploaded all the videos and pictures from her gadgets, and the recording from the conference room, to her private account. It was painfully slow. When she had checked the uploaded files, she deleted them from the camera and the laptop.
 
-A sharp knock on the door jolted her from her reverie. She hastily enquired, “Who is it?”
+A sharp knock on the door made her start. “Who is it?”
 
 “This is Alex. The chief wants to see you.”
 
-“Tell him I will be there in five minutes.”
+Benedikt had a few questions about some documents, which she answered, and after that she had nothing else to do. While he worked through his papers and his calls, she scribbled on a notepad and thought about Latvia. Once or twice she felt him looking at her, but she did not look up.
 
-Benedikt was busy going through some reports. He had a few questions about some documents, which she answered, and after that she had nothing else to do. While he worked through his papers and his calls, Sanchez kept her mind occupied rehearsing what she wanted to do in Latvia, and she scribbled aimlessly on a notepad. Once or twice she felt him looking at her, but she did not look up.
+“Sanchez, go and take some rest,” he said at last. “Let us resume tomorrow morning. Hopefully Latvia can give us some leads to trace your father.”
 
-“Sanchez, go and take some rest,” he said at last in a soft tone. “Let us resume tomorrow morning. Hopefully Latvia can give us some leads to trace your father.”
+She went on scribbling. After a long pause, he continued, “Unfortunately, I cannot go around enquiring about your father. It can put everyone in danger.”
 
-She was still scribbling, paying no attention to his words. After a long, uncomfortable pause, he continued, “Unfortunately, I cannot go around enquiring about your father. It can put everyone in danger.”
+Without taking her eyes from the notepad, she said, “By everyone you mean you.” Then she gave him a hard look. “Isn’t that correct?”
 
-Without taking her eyes away from the notepad, she said, “By everyone you mean you.” Then she gave him a hard look. “Isn’t that correct?”
+Benedikt’s face turned pale. He kept his temper, but not the sarcasm out of his voice. “I hope you are intelligent enough to know that if by any stroke of luck your father is still alive, any snooping around can put his life in deep danger.”
 
-Benedikt’s face turned pale. Though he managed to control his anger, he could not keep the sarcasm out of his voice. “I hope you are intelligent enough to know that if by any stroke of luck your father is still alive, any snooping around can put his life in deep danger.”
-
-Sanchez chose to remain silent, and soon she excused herself and walked out of the room. As she hurried down the corridor, tears started rolling down her cheeks. She did not want him to see them. The last thing she wanted was his sympathy.
+Sanchez excused herself and walked out of the room. As she hurried down the corridor, tears started rolling down her cheeks. She did not want him to see them.
 
 * * *
 
-Benedikt rushed out to the deck to find some relief. Every single time he tried to correct things, he failed. His temper was making Sanchez slip further away from him, and deep inside he knew there was some truth in what she had said.
+Benedikt went out on deck. The lights of Ventspils were spreading along the dark shore, and the ship was sliding towards them with hardly a sound. He had promised to help her find her father, and so far he had not told her what he was going to do about it. And the one thing he knew about her father, how he had been taken, was the one thing he could not bring himself to tell her.
 
-The cold air was a natural healer, and it calmed him instantly. The lights of Ventspils were spreading along the dark shore, and the ship was sliding towards them with hardly a sound. He reflected on the past few days and realised how unfair he had been all this while. He had promised to help her find her father, and to date he had not told her what he was going to do about it. He had confused her with his reaction to the photograph. He had made her work without a break, and never once had she complained. And the one thing he knew about her father, how he had been taken, was the one thing he could not bring himself to tell her.
+He would find out where the partners had taken the Scottish driver, and he would do it in a way that could never lead Ayr back to her. If that meant sending her home first, he would send her home.
 
-Despite everything, a secret smile crossed his face. He realised that the barriers he had felt all this while were of his own making. He now had a purpose. He would find out where the partners had taken the Scottish driver, and he would do it in a way that could never lead Ayr back to her. If that meant sending her home first, he would send her home. For once he was certain of what he had to do. What he had not decided was how much of the truth he would tell her when he had done it.
+His phone rang. It was Damian, from the office in Tallinn.
+
+“Chief, Kask on your cargo door says she was down there at four this morning. I asked him to keep an eye out.” Damian was breathing hard, as he did when he was worried. “And the AV frame in the conference room was sitting off its hinge after the meeting, as if something had been wedged under it. I had a look round her cabin as well. I found nothing. That doesn’t mean there was nothing.”
+
+Benedikt watched the lights come closer. “If you start asking questions about my assistant, Damian, Ayr will hear of it by Friday, and then it will not only be her they look at. Miss Lind goes where I send her. Tell Kask to put his notebook away.”
+
+There was a long silence on the line. “Clear, Chief,” Damian said, and hung up.
 
 ## Chapter 44
 ### 8:00 AM, Thursday 24th April 2014, DAZZLE, Ventspils, Latvia
 
-Sanchez heard the voices before she saw anything. It was a loud cacophony, a blend of innumerable voices all trying hard to explain something with urgency. She tried to focus but failed miserably. Then she saw them appearing one by one, making their way into her cabin through the open door. Some were aghast, and the others were too eager to lay their hands on her. The voices were becoming unbearable. With all her might she tried to escape, but her body refused to follow her mind, and she helplessly watched those ghostly creatures moving towards her.
+Sanchez heard the voices before she saw anything. It was a loud cacophony, innumerable voices all trying to explain something with urgency. Then she saw them coming one by one into her cabin through the open door. Some were aghast, and the others were eager to lay their hands on her. With all her might she tried to escape, but her body refused to follow her mind, and she watched those ghostly creatures moving towards her.
 
-One of them slowly took on a distinct shape, and out of the shallow darkness she could see the hazy shadow of Benedikt. She craned her neck to get a good look but failed. His hand was slowly reaching towards her. She gave one final push and found her lost voice. She screamed and jumped out of her constrained state, perspiring from head to toe. Behind the heavy curtains the room was pitch dark, and there was no one there. The voices had gone.
+One of them slowly took on a distinct shape, and out of the shallow darkness she could see the hazy shadow of Benedikt. His hand was slowly reaching towards her. She gave one final push and found her voice. She screamed and woke, perspiring from head to toe. Behind the heavy curtains the room was pitch dark, and there was no one there.
 
-It took her a few minutes to adjust to the darkness and to accept that she had had a bad dream. She turned the lights on and checked the time. It was 8:00 AM. For a while she sat on the edge of the bed without moving. She could not have said whether the hand in the dream had been reaching to seize her or to pull her out, and that troubled her more than the voices.
+She turned the lights on and checked the time. It was 8:00 AM. For a while she sat on the edge of the bed without moving.
 
-*I have to stop overthinking*, she promised herself, and she put her mind to the plan she had for the day.
+The warehouse was the first thing on her list. She hoped to find someone who might have seen her father, someone who might have been his friend. Benedikt could have been a great help, but after the previous evening she did not want his help.
 
-Going to the warehouse was the first thing on her list. Her hope was to find someone who might have seen her father, someone who might have been his friend. She knew her plan was vague, but she could not think of a better one. Benedikt could have been a great help, but after the previous evening she was averse to taking any help from him.
+She went to the bathroom, splashed cold water on her face and stared at the mirror. *Am I in love?* She knew the answer, and she did not like it.
 
-*Why does my heart break when he talks harshly? Why am I bothered when he misbehaves?* She tried reasoning but could not arrive at any conclusive answer.
+“You are here for a mission,” she told the face in the mirror. “You don’t have time to fall in love. Find your dad and get the hell out of this place.”
 
-*Am I avoiding the truth? Am I in love?* No matter how vehemently she refused to accept it, she knew that she was in love.
+Benedikt was at his desk when she came into the office. There was no trace of the previous evening’s temper on his face. Before she could say a word, he looked up. “I am going to the warehouse this morning. Would you like to join me?”
 
-“What have I done?” she mumbled. She walked to the bathroom, splashed some cold water on her face, stared at the mirror and said to herself in a quiet but firm voice, “You are here for a mission. You don’t have time to fall in love. Find your dad and get the hell out of this place.”
+For a moment all she could do was stare at him.
 
-With renewed determination, she headed to the office.
+“I know a warehouse is no fun, but after our visit we can walk through Market Square. It is a beautiful place.”
 
-Benedikt was at his desk, busy going through some files. There was no trace of the previous evening’s temper on his face. Before she could say a word, he looked up and said, “I am going to the warehouse this morning. Would you like to join me?”
-
-She was taken aback. It seemed he had read her mind, and for a moment all she could do was stare at him.
-
-“I know a warehouse is no fun, but here is what I can do to make it interesting. After our visit, we can walk through Market Square. It is a beautiful place.”
-
-Her mind was running in many directions, and she failed to offer a response for a while. A little embarrassed, she said, “Sure. When do we leave?”
+“Sure. When do we leave?”
 
 “The unloading will take another few hours. Around eleven?”
 
 “Yes, that is fine.”
 
-“So I will see you at eleven by the gangway.”
-
-She gave him a small smile and headed back to her cabin more confused than before. She had come to Latvia to find someone who had known her father, and she had just agreed to spend the whole day at the side of the one man who must never see her do it.
+“So I will see you at eleven by the gangway.” He went back to his files. Outside the office door stood the guard with the notebook. He did not take it out when she passed him.
 
 ## Chapter 45
 ### 10:30 AM, Thursday 24th April 2014, DAZZLE, Ventspils, Latvia
 
-Sanchez was by the gangway well before time. The dark clouds over the rough sea made the port look exquisite, and a strong gust of wind was moving at a fast pace, appearing unruly, for it dared to take everything away with it. Despite the large concrete structures that crowded the quay, Ventspils had a distinct character of its own, and there was something in it that reminded her of the harbour at Ayr.
+Sanchez was by the gangway well before time. Dark clouds hung over a rough sea, and a strong wind was blowing along the quay. Despite the concrete structures that crowded it, there was something in Ventspils that reminded her of the harbour at Ayr.
 
 “Madam, I need to have a word with you.” The voice almost made her jump. She turned around and found Finch standing by the edge of the hatch, right where the gangway ended. He looked edgy, and when he had her attention, he turned and started walking towards the stern of the ship, far away from the crowd.
 
-Sanchez was confused but decided to follow him anyway. She kept some distance to make sure no one noticed them. After a few minutes’ walk, he slipped into a hidden corner at the end of the deck, behind a stack of lashing gear. Sanchez followed, and soon she was standing across from him.
+Sanchez followed him, keeping some distance so that no one would notice them. After a few minutes’ walk, he slipped into a hidden corner at the end of the deck, behind a stack of lashing gear. Sanchez followed, and soon she was standing across from him.
 
-In a hushed tone, Finch said, “I know him. Dan the Scot, we called him. He used to work on this ship. Then one day in Gdynia a friend of mine, Yuri Avilov, quit the ship, and the same night Dan was gone. I never asked how. Yuri was our cook, and he’s from Vitebsk. They were good friends, the two of them. I’ve not heard from Yuri in a long time, but if anybody can help you find your dad, it’s him.”
+Finch spoke low and fast. “I know him. Dan the Scot, we called him. He used to work on this ship. Then one day in Gdynia a friend of mine, Yuri Avilov, quit the ship, and the same night Dan was gone. I never asked how. Yuri was our cook, and he’s from Vitebsk. They were good friends, the two of them. I’ve not heard from Yuri in a long time, but if anybody can help you find your dad, it’s him.”
 
-This was the first real lead she had got hold of in years. Before she could say anything, Finch continued in the same urgent tone, pressing a folded envelope into her hand. “Take this letter. Tell him it’s from me. He won’t refuse to help.”
+It was the first real lead she had found in four years. Before she could say anything, Finch pressed a folded envelope into her hand. “Take this letter. Tell him it’s from me. He won’t refuse to help.”
 
-Sanchez was all teary as she thanked him. He gave her the most genuine smile he could manage. “You’re a good person. Take care of yourself.” And he was gone.
+Sanchez thanked him with tears in her eyes. He managed a smile. “You’re a good person. Take care of yourself.” And he was gone.
 
-She slipped the envelope inside her jacket. It would be another five days before they arrived in Vitebsk, and she knew these five days would be excruciatingly long. Until then, the letter had to stay where Benedikt would never find it.
+She slipped the envelope inside her jacket. It would be another five days before they arrived in Vitebsk. Until then, the letter had to stay where neither Benedikt nor the man who had been through her suitcase in Tallinn would ever find it.
 
 ## Chapter 46
 ### 11:00 AM, Friday 25th April 2014, DAZZLE, Ventspils, Latvia
 
-Sanchez’s stay at Ventspils was laced with frustration. The letter to Yuri Avilov was sewn into the lining of her suitcase beside Maxwell’s kit, and she could think of nothing else. She knew she could only put her fear to rest after meeting him, and Vitebsk was still four days away.
+The letter to Yuri Avilov was sewn into the lining of Sanchez’s suitcase beside Maxwell’s kit, and she had checked the stitches twice since. Vitebsk was still four days away.
 
-At the warehouse on Thursday she had managed to gather some valuable evidence. Her earring camera had recorded the crates coming off the ship and the numbers stencilled on them, and she had photographed a loading list on a clipboard while the foreman’s back was turned. None of it brought her any closer to her father.
+At the warehouse on Thursday she had gathered some valuable evidence. Her earring camera had recorded the crates coming off the ship and the numbers stencilled on them, and she had photographed a loading list on a clipboard while the foreman’s back was turned. None of it brought her any closer to her father.
 
-Benedikt tried hard to lift her spirits. They walked through Market Square, where the stalls were full of smoked fish and spring flowers, and they ate at a small restaurant by the canal, and he took every opportunity to amuse her, but nothing worked. The only time he found her engaged was on Thursday evening, at an organ recital in St Nicholas’ Church. For an hour, in the cold, white church, she forgot the ship and the letter and even him. Near the end she looked along the pew and found that he had closed his eyes. His face, which she had studied across a card table for a whole evening and found nothing on, was quite unguarded, and she looked at it for longer than she meant to. When the last chord died away he opened his eyes and found her watching him, and neither of them looked away at once. It was short-lived. She returned to her despondent state the moment they stepped out into the street.
+Afterwards they walked through Market Square, where the stalls were full of smoked fish and spring flowers, and ate at a small restaurant by the canal. Benedikt tried hard to lift her spirits, and nothing worked until the evening, at an organ recital in St Nicholas’ Church. For an hour, in the cold, white church, she forgot the ship and the letter and even him. Near the end she looked along the pew and found that he had closed his eyes. His face, which she had studied across a card table for a whole evening and found nothing on, was quite unguarded, and she looked at it for longer than she meant to. When the last chord died away he opened his eyes and found her watching him, and neither of them looked away at once. Out in the street she was quiet again.
 
-Now it was Friday morning, the last day in port, and she sat in the office sorting papers she did not care about, counting the hours to Gdynia.
+Now it was Friday morning, the last day in port, and she sat in the office sorting papers she did not care about.
 
 * * *
 
-Benedikt watched her from his desk and knew he had so far failed her.
+Benedikt watched her from his desk.
 
-Oskar had called the evening before. He had found nothing, and rightly so, for the Scottish driver had been an extremely hushed affair. Benedikt knew how her father had been taken, and he knew that he had last been seen in Belarus. He did not know where the partners had put him after that, or whether he was still alive. A single call to Evan would give him all the answers, but he could find no good reason to justify the question. The moment Evan doubted his motive, he would be watched, and his temp from the Copenhagen office would be looked at too. Once they looked at her, they would find her real name, and he knew what they did to people who knew too much. That was a risk he was not ready to take at any cost.
+Oskar had called the evening before and had found nothing. Benedikt knew how her father had been taken, and he knew that he had last been seen in Belarus. He did not know where the partners had put him after that, or whether he was still alive. A single call to Evan would tell him, but he could find no reason to ask that would not make Evan wonder why. The moment Evan doubted him, he would be watched, and his temp from the Copenhagen office would be looked at too. Damian had already looked, and Damian was his friend. Once Ayr looked at her, they would find her real name, and he knew what they did to people who knew too much.
 
-He could make that call only when she was safe, and she could only be safe off his ship. Convincing her to leave was the only resort he had left. Though he knew it would be a hard conversation, he decided to have it that evening.
+He could make that call only when she was safe, and she could only be safe off his ship. He decided to tell her so that evening.
 
 * * *
 
 *6:30 PM*
 
-It was the evening of their scheduled departure for Gdynia. Sanchez was about to leave the office when Benedikt asked her to come with him for a stroll on the deck. With some hesitation, she agreed.
+It was the evening of their departure for Gdynia. Sanchez was about to leave the office when Benedikt asked her to walk with him on the deck. The wind made the air cold, and the crew were already preparing the lines. They walked for a while without a word.
 
-It was a fine evening. The wind made the air cold, but not enough to make it unpleasant, and the crew were already preparing the lines. They walked for a while without uttering a word. After a few minutes of uneasy silence, Benedikt said, “I have a request to make.”
-
-“What is it about?” Sanchez sensed something untoward.
-
-“You need to first agree that you will give me a fair hearing and react rationally, not emotionally.”
+“I have a request to make,” Benedikt said. “You need to first agree that you will give me a fair hearing.”
 
 “Sure, I’m listening.”
 
-“I have been thinking for the past few days about how to find your father. I have spoken to people I trust, and no one knows anything. After a lot of deliberation, I am left with only one option, which is to ask the top executives.” He paused. “They are dangerous people. If I go and enquire about Daniel, they will come after me. They will scrutinise me. Eventually, they will come to know about you. And once they find out who you really are, you will not be spared.”
+“I have spoken to people I trust, and no one knows anything. I am left with only one option, which is to ask the top executives.” He paused. “They are dangerous people. If I go and enquire about Daniel, they will come after me. Eventually they will come to know about you. And once they find out who you really are, you will not be spared.
 
-She did not react, and he went on.
+“I want you to leave the ship. I cannot knowingly put you in danger. I promise I will do everything required to find your father.”
 
-“I want you to leave the ship. I care about you a great deal, and I cannot knowingly put you in danger. I promise I will do everything required to find your father. Trust me, I will not fail you.”
-
-Sanchez stopped walking. Something he had said was wrong, and it took her a moment to find it. She had shown him a photograph. She had told him about the Sunday and the bakery and the years of searching. But she had never once, in Tallinn or on this ship, spoken her father’s first name.
+Sanchez stopped walking. She had shown him a photograph. She had told him about the Sunday and the bakery and the years of searching. But she had never once, in Tallinn or on this ship, spoken her father’s first name. Oskar’s people could have found it for him, if he had asked them to look. So he had asked. And he had said it easily, the way a man says a name he has known for years.
 
 “How do you know his name?”
 
 Benedikt stopped too. He stood very still, looking out at the harbour and not at her, and she saw his left thumb go to the cuff of his right sleeve and rest there. It was the same small movement she had seen at dinner in Tallinn, when he had told her he did not know her father.
 
-“You have told me you don’t know my dad, so how do you know his name?” Her voice was rising now, and she did not care who heard it. “You are hiding something from me. Tell me the truth. What do you know about my father?”
+“You told me you don’t know my dad, so how do you know his name?” Her voice was rising now, and she did not care who heard it. “You are hiding something from me. What do you know about my father?”
 
-“Trust me, I don’t know where he is.” He struggled to speak with conviction. “You know you are special to me. In the last few days I have done things I have never done in my life. I do not want trouble for you. That is the only reason I am asking you to leave.”
+“Trust me, I don’t know where he is.” He struggled to say it with conviction. “You know you are special to me. In the last few days I have done things I have never done in my life. That is the only reason I am asking you to leave.”
 
-Sanchez was certain now that he was hiding something about her father, but she also knew that he genuinely wanted to help her. She could not leave the ship. Yuri was in Vitebsk, and without Benedikt she had no way into Belarus. And she did not want him to know what had passed between her and Finch.
+Sanchez was certain now that he was hiding something, but she also knew that he genuinely wanted to help her. She could not leave the ship. Yuri was in Vitebsk, and without Benedikt she had no way into Belarus. And she did not want him to know what had passed between her and Finch.
 
-“If you truly respect me, then let me stay,” she said. “I want to see every place with my own eyes. Let me stay until the end of this trip. If I still fail to find him, I will do as you say.”
+“If you truly respect me, then let me stay,” she said. “Let me stay until the end of this trip. If I still fail to find him, I will do as you say.”
 
-After a long pause, Benedikt said, “Very well. If this is what you want, I will not insist that you leave. But I will not go and look for your father until I am sure you are safe.”
+After a long pause, Benedikt said, “Very well. I will not insist that you leave. But I will not go and look for your father until I am sure you are safe.”
 
-The ship’s whistle sounded, and the deck trembled under their feet as the engines took up the strain. Slowly the quay began to move away from them. Sanchez saw how dejected he looked, and she struggled to understand why it still hurt her to see it. How she wished she could see what was passing through his mind. He had known her father’s name all along, and she had never told him. How much more did he know?
+The ship’s whistle sounded, and the deck trembled under their feet as the engines took up the strain. Slowly the quay began to move away from them. Benedikt went below without another word, and Sanchez stayed at the rail until the lights of Ventspils had gone.
 
 ## Chapter 47
 ### 11:00 AM, Saturday 26th April 2014, Gdynia, Poland
 
 Maxwell had been watching the same small arrow on his phone half the night. On Friday, in the flat they had rented in Ventspils, he had circled Gdynia on the map until he was sure, and then he had called out to Stephen in the kitchen, “We need to be in Gdynia. That’s where the voyage ends.” They had left the half-cooked lunch on the stove and been on the road within the hour.
 
-The port at Gdynia was one busy place. Maxwell had an old contact who worked in the port authority, and with his help he knew DAZZLE’s berth and her expected time of arrival. Everything else he got from the ship-tracking website on his phone, which showed any vessel on the Baltic to anyone who cared to look. He had watched the arrow that was DAZZLE crawl south from Ventspils past the Lithuanian coast, and now it was so close to the harbour mouth that he could almost have walked out to meet it. With no concrete plan in hand, waiting was the only option left. They had chosen a small coffee shop right outside the harbour gates. He had taken the corner table facing the door without thinking about it.
+The port at Gdynia was busy. Maxwell had an old contact who worked in the port authority, and with his help he knew DAZZLE’s berth and her expected time of arrival. Everything else he got from the ship-tracking website on his phone, which showed any vessel on the Baltic to anyone who cared to look. He had watched the arrow that was DAZZLE crawl south from Ventspils past the Lithuanian coast, and now it was so close to the harbour mouth that he could almost have walked out to meet it. There was nothing to do but wait. They had chosen a small coffee shop right outside the harbour gates. He had taken the corner table facing the door without thinking about it.
 
-Stephen sat opposite with his third coffee and watched the cranes. Their last conversation with Sanchez, from the deck at Ventspils, had been short. She was well, she said, and she was working, and she would tell them more when she could. Maxwell had no idea how she meant to learn anything about her father from Benedikt Voss, and he could not understand what the man wanted from her. He had a faint suspicion that Benedikt was in love with her. He tried not to dwell on it, but it kept returning, and every time it returned it left him with a discomfort he did not care to examine. It was he who had put her on that ship, and he knew it.
+Stephen sat opposite with his third coffee and watched the cranes. Their last conversation with Sanchez, from the deck at Ventspils, had been short. She was well, she said, and she was working, and she would tell them more when she could. Maxwell had no idea how she meant to learn anything about her father from Benedikt Voss, and he could not understand what the man wanted from her, unless it was the obvious thing. It was he who had put her on that ship, and he knew it.
 
 The phone rang. It was not his friend. It was a London number, and Maxwell knew it well enough to hesitate before he answered.
 
@@ -2812,7 +2766,7 @@ Maxwell said nothing for a moment. He had not let himself think about Luís sinc
 
 “He did. So does the girl.” Drake took a pause. “Your last message said this route goes on from Warsaw. Belarus, and then Russia.”
 
-“Vitebsk,” Maxwell said. “Then over the border to Smolensk.”
+“Vitebsk,” Maxwell said. “Then over the Russian border. Where it goes after that, I don’t know yet.”
 
 “Then listen to me carefully, because I will say it once. Nobody official in Minsk will touch this. We have no treaty worth the name, you have no case, and you have no powers in Poland, never mind Belarus. If you walk into a Belarusian police station with your warrant card, they will lock you up and I will have to come and fetch you. But there is a man in Vitebsk. Major Pavel Zhuk, criminal police. We worked a trafficking case together in 2011, and he owes me.” Drake spelled the name slowly. “I will ring him today and tell him you are coming. You will use him for the girl’s safety and nothing else. Do you understand me?”
 
@@ -2861,9 +2815,9 @@ He did not answer at once. He stepped past her, bent down and looked into the sp
 
 He looked at her for a moment longer. Then he turned and called to the foreman in English to have the crate repacked before it went on the lorry, and he walked on down the row without another word.
 
-Sanchez stood there, and she could hear the thumping of her heart. He had caught her with a light in her hand and her eyes on his cargo, and instead of asking her a single question he had told her exactly what she was looking at. Why? Was it a test, or a warning? Or had he wanted her to know?
+Sanchez stood there and listened to his footsteps going away. He had caught her with a light in her hand and her eyes on his cargo, and instead of asking her a single question he had told her exactly what she was looking at.
 
-That night in her cabin she searched on her laptop for the word he had given her. The Cham had been a kingdom in what was now central Vietnam, and their greatest temples stood in a green valley called Mỹ Sơn. She sat very still. She had heard that name before, on the recording from the conference room, in Evan Slater’s voice on the speakerphone, approving *the Mỹ Sơn lots*. It was a substantial finding, and she knew that this, along with everything else she had gathered, could help bring TransPacific down. She uploaded the video to her private account and cleared every trace of it from the camera.
+That night in her cabin she searched on her laptop for the word he had given her. The Cham had been a kingdom in what was now central Vietnam, and their greatest temples stood in a green valley called Mỹ Sơn. She sat very still. She had heard that name before, on the recording from the conference room, in Evan Slater’s voice on the speakerphone, approving *the Mỹ Sơn lots*. She uploaded the video to her private account and cleared every trace of it from the camera.
 
 The unloading was finished late in the evening. The next morning they were leaving for Warsaw. *Three more days before Vitebsk*, she thought as she lay awake, and it was hours before sleep came.
 
@@ -2871,9 +2825,9 @@ The unloading was finished late in the evening. The next morning they were leavi
 
 *Warsaw, 7:00 PM, Sunday 27th April*
 
-The drive to Warsaw was smooth, and they reached the hotel early in the afternoon. Benedikt had meetings arranged for the rest of the day, and on that pretext Sanchez excused herself to see the town. She walked the cobbled streets of the Old Town in no defined order. Every church and merchant’s house around the square looked as if it had stood for five hundred years, and every one of them had been rebuilt, stone by stone, from the ruins of 1944. It seemed to her the bravest thing a city could do.
+The drive to Warsaw was smooth, and they reached the hotel early in the afternoon. Benedikt had meetings arranged for the rest of the day, and on that pretext Sanchez excused herself to see the town. She walked the cobbled streets of the Old Town in no defined order. Every church and merchant’s house around the square looked as if it had stood for five hundred years, and every one of them had been rebuilt, stone by stone, from the ruins of 1944.
 
-It was time to call Stephen. Stephen, like always, sounded anxious. When she told him where she was, at first he was thrilled, and then he was worried. He and Maxwell had followed the cars all the way from Gdynia, and they had been watching the front of the hotel all afternoon. He could not understand how she had walked past them. Sanchez laughed for the first time in days, and agreed to meet them at a coffee shop off the square.
+She called Stephen, who sounded anxious, as always. He and Maxwell had followed the cars all the way from Gdynia, and they had been watching the front of the hotel all afternoon. He could not understand how she had walked past them. Sanchez laughed, and agreed to meet them at a coffee shop off the square.
 
 The wait was not long. Stephen beamed when he saw her walk in without a limp. Maxwell was already seated at the corner table facing the door. Sanchez noticed it, and noticed that she would have chosen it herself.
 
@@ -2905,9 +2859,9 @@ Maxwell folded the paper into his wallet and nodded once. “You have my word,�
 ## Chapter 49
 ### 8:00 AM, Tuesday 29th April 2014, Warsaw, Poland
 
-It was pouring in Warsaw. The relentless rain and the gloomy weather were not helping Benedikt to drive away his restlessness. He could sense Sanchez drifting away from him but was unsure how to stop it. The stay in Warsaw had been busy, and he couldn’t find time to have any real conversation with her. Most of the time he was either in business meetings or on site visits. The whole of Monday had gone to the Belarusian consulate, where her visa was issued on an invitation from his own fixer in Vitebsk, so that her real name would never cross a desk in Ayr. And in the little time he had, she always appeared aloof, lost in her own world, impeding any dialogue between them.
+It was pouring in Warsaw. The relentless rain and the gloomy weather were not helping Benedikt to drive away his restlessness. He could sense Sanchez drifting away from him but was unsure how to stop it. The stay in Warsaw had been busy, and he couldn’t find time to have any real conversation with her. Most of the time he was either in business meetings or on site visits. The whole of Monday had gone to the Belarusian consulate, where her visa was issued on an invitation from his own fixer in Vitebsk, so that her real name would never cross a desk in Ayr. In the little time he had, she was aloof and lost in her own world.
 
-After a lot of deliberation, he had convinced his hesitant mind to confront her. This time he was determined to express his feelings. He wanted the yearnings, which had been subdued in the past for reasons beyond his control, to flow uninterrupted. There was another truth he owed her, about her father, and he knew it. But he could not find the courage for both in a single morning, and he chose the one that frightened him less. The trip to Belarus was a short journey by plane, and he wanted to use the travel time to approach her. He had written it all down the night before, for he did not trust his voice.
+After a lot of deliberation, he had convinced his hesitant mind to confront her. This time he was determined to express his feelings. There was another truth he owed her, about her father, and he knew it. But he could not find the courage for both in a single morning, and he chose the one that frightened him less. The trip to Belarus was a short journey by plane, and he wanted to use the travel time to approach her. He had written it all down the night before, for he did not trust his voice.
 
 He had been awake before the break of dawn. A run in the rain and a long shower worked towards calming his anxieties. When he came down, Sanchez was already in the breakfast room, at a corner table facing the door, with a cup of coffee going cold in front of her. She looked up at him for longer than she usually did, and then she looked away at the rain. It was a quiet breakfast, and soon they headed to the airport.
 
@@ -2929,9 +2883,9 @@ Sanchez opened the folded paper and read it with interest.
 
 “Believe in my words. Let us give each other our hands and let destiny lead us where it wants to take us.”
 
-As she read the message, her heart wrenched for him. A few deep breaths helped to calm her, and then she walked to the rear of the plane. Benedikt was sitting on the couch, flipping through the magazine. As he sensed her presence, he cast a casual but attentive glance at her. There were anticipation, curiosity and love in his blue eyes. He kept whatever else he was feeling behind a faint smile and waited for her to speak.
+As she read the message, her heart wrenched for him. A few deep breaths helped to calm her, and then she walked to the rear of the plane. Benedikt was sitting on the couch, flipping through the magazine. As he sensed her presence, he cast a casual but attentive glance at her. There was hope in his blue eyes. He kept whatever else he was feeling behind a faint smile and waited for her to speak.
 
-She knew it would be hard, but she was determined to speak the unwelcome words. And with that fortitude, she looked straight into his eyes and said in a soft yet firm tone, “I cannot fall in love with a person who is responsible for my father’s disappearance.”
+She knew it would be hard, but she was determined to say it. She looked straight into his eyes and said, “I cannot fall in love with a person who is responsible for my father’s disappearance.”
 
 The colour left his face, and he lost his voice for a while before he managed to say, “Do you really believe that I am responsible for your father’s disappearance?”
 
@@ -2970,9 +2924,9 @@ In the daylight she could clearly see the warehouse from a distance. The lone bu
 
 She tried again. This time she said that she had an important message for Yuri from his old friend Finch, from the ship where he used to work. She said the two names clearly, twice. The old man looked at her for a moment, then turned his back and went on with his counting.
 
-She was unsure whether it was because of her poor Russian, the unfriendliness of the locals, or fear of some unknown force that was stopping them from speaking. Frustrated, she decided to exercise her last resort, Benedikt. She wanted to avoid taking his help for many reasons, the prime one being her inability to trust him. But her time and options were both running out, and he was the only person left who could help. She spotted him a few yards away, deep in an intense conversation with the locals, and she waited for it to end. She was so close to Yuri and yet so far from him. How she wished she did not have to ask Benedikt for help, and how she desired some miracle to happen in her favour.
+She was unsure whether it was because of her poor Russian, the unfriendliness of the locals, or fear of some unknown force that was stopping them from speaking. Frustrated, she decided to exercise her last resort, Benedikt. She wanted to avoid taking his help for many reasons, the prime one being her inability to trust him. But her time and options were both running out, and he was the only person left who could help. She spotted him a few yards away, deep in an intense conversation with the locals, and she waited for it to end. How she wished she did not have to ask Benedikt for help.
 
-She was brought out of her brooding by a gentle tap on her shoulder. She turned around and found a thin young man with a fragile-looking frame, hardly older than herself, standing right in front of her. He put a folded piece of paper in her hand without a word and went back to the loading bay. Sanchez hurriedly opened the folded chit and found a few lines written in Russian. Though she couldn’t read them, she knew it was an address. She was thrilled. She had got hold of something concrete when she was least expecting it.
+She was brought out of her brooding by a gentle tap on her shoulder. She turned around and found a thin young man with a fragile-looking frame, hardly older than herself, standing right in front of her. He put a folded piece of paper in her hand without a word and went back to the loading bay. Sanchez hurriedly opened the folded chit and found a few lines written in Russian. Though she couldn’t read them, she knew it was an address. She had got hold of something concrete when she was least expecting it.
 
 It was noon, and time to break for lunch. Sanchez had already scripted a plan to get out of the place. As she saw Benedikt approaching her, she leaned on the desk with her head hidden in her folded arms.
 
@@ -2990,7 +2944,7 @@ Soon a young man appeared at her door. She called him inside, handed him a fifty
 
 It was a long fifteen-minute wait before she stepped out of her room. She covered her face with a scarf and took the stairs. She waited by the stairway and peeked out to confirm no one she knew was around. Once convinced, she walked discreetly out of the hotel.
 
-The car outside the coffee shop was a dark saloon with no sign on its roof. The driver was the same man who had held the door for Benedikt that morning. She hesitated with her hand on the door handle, but there was no time to find another. She got in, pulled the scarf closer and passed him the paper, and the car turned west out of the city towards a village whose name she had heard for the first time less than half an hour before.
+The car outside the coffee shop was a dark saloon with no sign on its roof. The driver was the same man who had held the door for Benedikt that morning. She hesitated with her hand on the door handle, but there was no time to find another. She got in, pulled the scarf closer and passed him the paper, and the car turned west out of the city towards a village whose name she had not heard until half an hour before.
 
 ## Chapter 51
 ### 2:00 PM, Wednesday 30th April 2014, Novka, Belarus
@@ -2999,7 +2953,7 @@ Sanchez asked the driver to wait at the end of the lane and walked the last few 
 
 Though he looked sceptical, he reluctantly confirmed it. Sanchez’s hope took a leap. She handed him the letter from Finch and patiently waited for his reaction. He read the letter and at once made space to let her come inside. He locked the door firmly behind her, and to her surprise, he spoke in fine English. *He had it from Dad*, she thought.
 
-“Are you Sanchez? He used to talk about you all the time.” His old eyes had a spark which was hard to ignore.
+“Are you Sanchez? He used to talk about you all the time.” There was a spark in his old eyes.
 
 “Do you know where he is?”
 
@@ -3017,7 +2971,7 @@ He gave a sad smile and continued, “They took him away. And…” He hesitated
 
 “He is in Russia. I have not seen him since October. They have confined him, and I believe the only reason he may be alive is the evidence he has against them.” He took a pause and continued, “The evidence is his lifeline.”
 
-“Why did you say *may be*?” The anxiety was evident in her shaky tone.
+“Why did you say *may be*?”
 
 He looked into her eyes and said, “Because it still baffles me why they would keep him alive. Besides, he was taken to a place where there are no rules.”
 
@@ -3041,7 +2995,7 @@ No one had called her that in four years. She could not speak, and she only shoo
 
 “And he stayed here?”
 
-“In the back room, for fourteen months. He worked on the farms around Novka for cash, lifting potatoes, mending tractors, and nobody asks a foreigner who works hard and drinks nothing to show his papers. He was saving. In November he meant to go to Minsk, to the British Embassy, and ask them to send him home. In the evenings he sat on the step outside and hummed, always the same song. *Caledonia*, he told me it was called. He said it was the one thing they had not been able to take from him.”
+“In the back room, for thirteen months. He worked on the farms around Novka for cash, lifting potatoes, mending tractors, and nobody asks a foreigner who works hard and drinks nothing to show his papers. He was saving. In November he meant to go to Minsk, to the British Embassy, and ask them to send him home. In the evenings he sat on the step outside and hummed, always the same song. *Caledonia*, he told me it was called. He said it was the one thing they had not been able to take from him.”
 
 She knew the song. He used to hum it on Sunday mornings on his way down the street to the bakery, a little out of tune, and she would stand at her window pretending not to hear.
 
@@ -3080,35 +3034,35 @@ The driver was leaning on the bonnet of the car with his phone to his ear. When 
 ## Chapter 52
 ### 3:30 PM, Wednesday 30th April 2014, Vitebsk, Belarus
 
-Sanchez got out of the car a block away from the hotel, solely to avoid anyone seeing her. It was a cold afternoon. An unruly wind was spiralling down the street, and a shiver was surging through her spine. The street was sparsely populated, and a layer of mist hung over the river. After a few minutes of brutal walking, she entered the hotel lobby with cautious steps. She looked around and was relieved to find no sign of Benedikt or his men. With great urgency she hurried down the hallway towards the lifts. She was about to step into the lift when Benedikt’s voice startled her. She turned around and found him standing right behind her. Her feet went numb. For a moment, she felt as if she would crumble and fall. Despite the cold, she sensed a trickle of sweat appearing on her temple. How she wished what she was witnessing was nothing but a bad dream.
+Sanchez got out of the car a block away from the hotel, solely to avoid anyone seeing her. It was a cold afternoon. An unruly wind was spiralling down the street. The street was sparsely populated, and a layer of mist hung over the river. After a few minutes of brutal walking, she entered the hotel lobby with cautious steps. She looked around and was relieved to find no sign of Benedikt or his men. With great urgency she hurried down the hallway towards the lifts. She was about to step into the lift when Benedikt’s voice startled her. She turned around and found him standing right behind her. Her feet went numb. Despite the cold, she felt a trickle of sweat on her temple.
 
-She mustered some courage and raised her head to look at him. His eyes were hollow, set firmly in his pale, gloomy face. She had seen him in different shades before, but not the one he wore today. He looked like a dethroned king, lost and dismayed.
+She raised her head to look at him. His eyes were hollow, set firmly in his pale, gloomy face. She had seen him in different shades before, but not the one he wore today. He looked like a dethroned king, lost and dismayed.
 
-Before she could react in any meaningful way, he said, “It doesn’t appear you are sick any more.” The shade of sarcasm was evident in that gruff tone.
+Before she could react in any meaningful way, he said, “It doesn’t appear you are sick any more.”
 
 She forced a smile and claimed, “I felt suffocated in the room, so I went for a walk.”
 
 “Good. That was a long stroll to Novka.”
 
-Sanchez was exposed. The entire charade she had put on so far folded like a deck of cards. She kept quiet, surrendering to the situation.
+Sanchez was exposed. The whole charade had fallen apart, and she kept quiet.
 
 “The hotel’s driver works for us,” he said, as if that explained everything, and it did. She thought of the man leaning on the bonnet with his phone at his ear.
 
-“We need to talk. Please follow me to my room.” His tone, though gentle, was exuding annoyance.
+“We need to talk. Please follow me to my room.”
 
-She followed him into the lift with no sign of resistance. They settled in the living room of his suite. The absence of words and the unusual quietness made the place appear ghost-like.
+She followed him into the lift with no sign of resistance. They settled in the living room of his suite. For a while neither of them spoke.
 
-Benedikt finally broke the silence and in an exhausted tone asked, “Why can you not trust me?”
+Benedikt broke the silence at last. “Why can you not trust me?”
 
 “I didn’t trust you? Despite all the odds, I believed in you. I came on this trip against my brother’s wishes. I respected you, I admired you, and all this while I listened to my heart, ignoring everything my mind ever told me.”
 
-Sanchez was a shade below screaming. She didn’t know how, but she found the voice to defend herself, tired of pretending that everything was fine between them.
+Sanchez was a shade below screaming.
 
 “The thread that brought us together was my dad. No matter how much I try, I can’t forget the look on your face when you saw his picture. I know for certain that all this while you knew everything, but you pretended otherwise. Let me ask you – why should I trust you?”
 
 She was breathing heavily, and her cheeks were burning red with anger.
 
-Benedikt looked squarely at her, aghast. It was evident he had never expected her to retaliate with such bluntness. “I admit I hid a few facts, but that was because I did not want to lose you. There is nothing that I know that can help you find your father.”
+Benedikt looked squarely at her. He had not expected such bluntness. “I admit I hid a few facts, but that was because I did not want to lose you. There is nothing that I know that can help you find your father.”
 
 He looked at her to see her reaction and quickly turned away from her gaze. For a while he seemed unsure of what to do. Then he continued, “I was there on the day your father was captured. I was on a regular business trip. The men who took him were not mine.”
 
@@ -3120,7 +3074,7 @@ She said nothing and kept looking at him. He reached for the glass of water on t
 
 “I… I told the Russians to get rid of him. I did not ask what they would do, and I did not know. Afterwards I heard nothing, and I did not ask again. I believe they kept him, because of what he knows, but I swear to God I know nothing beyond this. I have no idea where they have taken him or what they have done with him.”
 
-He paused to watch her expression, as if exhausted by the effort of saying it. She was unusually quiet. She kept staring at the vase on the table, still and silent. The tall foreigner at the café had a name now, and he was standing in front of her, and no one had forced him to say it.
+He paused to watch her expression. She kept staring at the vase on the table. The tall foreigner at the café had a name now, and he was standing in front of her, and no one had forced him to say it.
 
 “I did not hide the facts to keep you away from your father. I did not want you to go away.”
 
@@ -3128,12 +3082,12 @@ She couldn’t take it any more. She felt suffocated in his presence, and she st
 
 “I need some time alone.”
 
-She walked out and closed the door behind her, leaving Benedikt standing in the middle of the room. In the corridor she stopped with her back to the wall and pressed her hands against her eyes. Yuri’s voice was still in her ears, and so was his. She had come all this way to find the people who took her father, and she had spent the days since Tallinn falling in love with one of them.
+She walked out and closed the door behind her, leaving Benedikt standing in the middle of the room. In the corridor she stopped with her back to the wall and pressed her hands against her eyes. She had come all this way to find the people who took her father, and she had spent the days since Tallinn falling in love with one of them. Behind the door she heard him set the glass down on the table, and then nothing.
 
 ## Chapter 53
 ### 10:00 PM, Wednesday 30th April 2014, Vitebsk, Belarus
 
-The night was long and restless. Sanchez was in a continuous battle with her mind over Benedikt’s confession. She was hurt and she was angry, and there was something in her that was looking for vengeance. Part of her wanted to capitulate. Her mind was clouded with agitation and unresolved questions, and for two hours she lay on the bed staring at the ceiling and got nowhere. At last she sat up, switched on the lamp and opened her notebook at a clean page, as she had done at sixteen when she made her list at the kitchen table in Girbin. She made herself set it down piece by piece.
+The night was long and restless. Sanchez was in a continuous battle with her mind over Benedikt’s confession. She was hurt and she was angry, and part of her wanted to capitulate. For two hours she lay on the bed staring at the ceiling and got nowhere. At last she sat up, switched on the lamp and opened her notebook at a clean page, as she had done at sixteen when she made her list at the kitchen table in Girbin. She made herself set it down piece by piece.
 
 The first thing was that he had confessed without being cornered. She had not said a word to him about the café on the ring road or the tall foreigner. She had come back from Novka with Yuri’s story burning inside her, and before she could throw it at him, he had told her the worst of it himself. A man who only wanted to keep her would have denied everything, as he had denied it at dinner in Tallinn. This time he had not.
 
@@ -3141,33 +3095,39 @@ The second thing was harder to write. Three times he had put his own standing at
 
 The third thing was the one she liked least. He was the only way into Smolensk. Yuri had said the place was well guarded and the people notorious. She had no Russian beyond a page of her notebook, no visa for Russia and no weapon. Maxwell had no powers even in Belarus, and none at all across the border. Without Benedikt she could stand at the edge of that forest for a year and never see her father.
 
-She looked at the three things for a long time. Was she forgiving him because he loved her and had proved it, or because she needed him? Would she have written the first two at all, if it were not for the third? She could not tell which was the true reason, and it frightened her that she could not. Could she trust a man she meant to use? Could she use a man she had begun to trust? The questions kept her awake for the rest of the night, and before she realised it, the window had turned grey.
+She looked at the three things for a long time. Was she forgiving him because he loved her and had proved it, or because she needed him? Would she have written the first two at all, if it were not for the third? She could not tell which was the true reason. The question kept her awake for the rest of the night, and before she realised it, the window had turned grey.
 
 * * *
 
 *Thursday 1st May, 5:30 AM*
 
-She decided to go for a run, hoping the morning air would give her a clearer view. The cold opened all her senses. The streets by the river were empty, and the domes across the water were catching the first sun. For a while she was like a free bird, and her nightlong apprehensions fell behind her with every stride. Her doubts had not gone away, but they no longer held her back. By the time she turned for the hotel she had her answer. She would trust him, because he had earned it, and she would use him, because her father needed it. And she would keep her eyes open for the moment those two things parted.
+She decided to go for a run, hoping the morning air would give her a clearer view. The cold opened all her senses. The streets by the river were empty, and the domes across the water were catching the first sun. For a while she was like a free bird, and her nightlong apprehensions fell behind her with every stride. By the time she turned for the hotel she had her answer. She would trust him and she would use him, both at once, and she would keep her eyes open.
 
-Back at the hotel, she walked straight to his room. On the third knock he responded, and when he saw her through the peephole, it was evident he was startled. He opened the door in haste. He had not slept either, by the look of him. After some struggle, she found her voice. “I hope I didn’t catch you at a bad time. Do you want me to come back?”
+Back at the hotel, she walked straight to his room. On the third knock he responded, and he opened the door in haste. He had not slept either, by the look of him. After some struggle, she found her voice. “I hope I didn’t catch you at a bad time. Do you want me to come back?”
 
-“No, it is fine. Have a seat. I will be with you in a minute.” And he vanished behind the bedroom door. He was back within a minute, in a crumpled shirt, with his hair partly combed. Haste was written all over his effort, but despite it she could see the sparkle of eagerness in his blue eyes.
+“No, it is fine. Have a seat. I will be with you in a minute.” And he vanished behind the bedroom door. He was back within a minute, in a crumpled shirt, with his hair partly combed. She could see the eagerness in his blue eyes.
 
 She looked at him and said, “I am tired of pretending to be a different person with you. I want to trust you one last time.”
 
-Benedikt was at a loss for words. Then he broke the awkward silence. “What you told me now means the world to me. You will not be disappointed.” There was an unmistakable joy in his tone.
+Benedikt was at a loss for words. Then he broke the awkward silence. “What you told me now means the world to me. You will not be disappointed.”
 
 Sanchez continued, “I have a fair idea where my father is, and I want your help.”
 
-“Where did you find him? Who told you? Is this real? Are you sure?” His barrage of questions seemed never-ending.
+“Where did you find him? Who told you? Is this real? Are you sure?”
 
 His eagerness and almost childlike enthusiasm made Sanchez smile, and for that moment she was glad of what she had decided.
 
 “I will tell you everything, but I am famished. Can we order breakfast first?” she asked, and some of the discomfort of the past several days went out of the room.
 
-Over breakfast she told him about Yuri. She told him about the ship and Dan the Scot, the lorry to Vitebsk, the fourteen months in the back room at Novka, the café on the ring road and the car with Smolensk plates. She did not tell him about Kolya, or how she had come by the address. Benedikt listened without interrupting. When she came to the café, he put his cup down and did not pick it up again, and he did not look away from her.
+Over breakfast she told him about Yuri. She told him about the ship and Dan the Scot, the lorry to Vitebsk, the thirteen months in the back room at Novka, the café on the ring road and the car with Smolensk plates. She did not tell him about Kolya, or how she had come by the address. Benedikt listened without interrupting. When she came to the café, he put his cup down and did not pick it up again, and he did not look away from her.
 
 “Smolensk,” he said when she had finished. “The Russians have their operation there. It is theirs, not ours, and I have never been inside it.” He was quiet for a while. “Give me today.”
+
+“Then do it my way,” she said. “Say nothing about my father on the telephone. Ask to see the place, for the expansion, and take me as your assistant. If he is there, we will see him with our own eyes before anyone knows what we came for.”
+
+He began to object that she should stay in Vitebsk, and she did not let him finish. “They will look at you, not at an assistant with a notebook. I have waited four years. I will not wait in a hotel.”
+
+After a long moment he nodded.
 
 He spent the whole of that day in his room on the phone, to Ayr and to the Russians, talking about expansion in a calm voice she hardly recognised. At seven in the evening he knocked on her door.
 
@@ -3180,9 +3140,9 @@ When he had gone, she stood at the window and watched the lights come on along t
 
 Sanchez had not expected Russia to begin so quietly. They had left the Hotel Dvina at half past seven, Belarus time, in the black BMW from the warehouse fleet, with Benedikt at the wheel and the road to Liozna running straight and empty between wet brown fields. Some fifteen kilometres beyond Liozna a blue sign stood at the side of the road. The same birches carried on behind it, and that was all. Benedikt did not slow down, and neither of them said a word. It was only when he reached over and put the clock on the dashboard forward by an hour that she understood they had crossed. She had no Russian visa. It was a risk she had accepted in Vitebsk, and nobody on this road seemed to care.
 
-The name Smolensk was not alien to Benedikt, he had told her on the way, for it had appeared a few times in his past business conversations. It was the East European operations centre of their Russian partners, and it was beyond his control. The city itself lay some seventy kilometres beyond the border, but the place they were going to was in the forest north-west of it, off the Rudnya road, close enough to Belarus to make the Russians’ dealings in Europe easy. It made perfect sense. Keeping her father in Russia would keep TransPacific out of any unwanted trouble.
+The name Smolensk was not alien to Benedikt, he had told her on the way, for it had appeared a few times in his past business conversations. It was the East European operations centre of their Russian partners, and it was beyond his control. The city itself lay some seventy kilometres beyond the border, but the place they were going to was in the forest north-west of it, off the Rudnya road, close enough to Belarus to make the Russians’ dealings in Europe easy. Keeping her father in Russia would keep TransPacific out of any unwanted trouble.
 
-On the telephone from Vitebsk he had presented a plan for expanding business with the Russians, and in the past he would have bulldozed his way in. This time he took care not to look too persuasive, for he never wanted anyone to cast any doubt on him. At first Benedikt had wanted to go alone, but Sanchez’s insistence had dissolved all his reasoning. In return he enjoined her, to the point of annoyance, not to display any emotions if she happened to see her father.
+On the telephone from Vitebsk he had presented a plan for expanding business with the Russians, and in the past he would have bulldozed his way in. This time he took care not to look too persuasive, for he never wanted anyone to cast any doubt on him. He had given way to her in Vitebsk, and in return he had enjoined her, to the point of annoyance, not to display any emotions if she happened to see her father.
 
 It was a cold spring morning. The villages they passed were quiet for the May holidays, with shops shuttered and hardly a car on the road. The place was located a few miles away from the highway in a deserted spot, down a track through tall pines. The trees and the wilds in the surroundings concealed what looked like a long-standing bastion behind a wire fence. They were stopped at the gate, and an armed guard searched the car thoroughly. He opened the boot and looked under the seats, and with a small bow he left the lady’s handbag alone. Inside, the place was nothing charming. There was one large building, which looked like a monolithic dome, and a row of long, low sheds behind it.
 
@@ -3190,13 +3150,13 @@ A man named Anatoly received them at the driveway. Anatoly was the manager of th
 
 They were taken to a large office and were joined by two more of his accomplices. All the discussions were in Russian, and Sanchez could hardly contribute. The few phrases she had learned from the internet in Vitebsk were of no use to her now. Though she kept a pleasant appearance, there was a shadow of uncertainty in her eyes, which was hard to conceal. They had come without any plan and would soon have to find one, and time was not their best friend. The place looked uninhabited. Besides the guards, the valet, a few helpers and the three officers, there was hardly anyone around.
 
-A quick tap on her hand took her out of her brooding. Benedikt tilted his head so that he could be close to her ear and whispered, “They are going to show me the place. I want you to wait here.” He wore a smile for the benefit of the room.
+A quick tap on her hand brought her back. Benedikt tilted his head so that he could be close to her ear and whispered, “They are going to show me the place. I want you to wait here.” He wore a smile for the benefit of the room.
 
 With a reluctant heart, she nodded her agreement, and he left with Anatoly. It was an intolerable wait. She did everything she could to divert her attention. She walked around, played with her phone and scribbled on paper, but nothing helped. From the window she could see two men wheeling a trolley of crates across the yard towards the sheds. The crates were stencilled in black letters, and one of the words was *KUPALA*. She had seen that name before, on an insurance schedule in Tallinn. She thought of the gilded face in the hold at Gdynia and turned away from the window before anyone could see her looking.
 
 After about thirty minutes, Benedikt returned, and it was time to leave. His face gave nothing away. Sanchez tried pressing him in the corridor and again on the steps, but each time he answered in monosyllables that he would tell her later. The valet brought the car to the driveway. They bade their host goodbye, the guard lifted the barrier, and soon they were out of the bastion and on the track through the pines.
 
-Before she could open her barrage of questions, Benedikt said in a firm tone, “I saw your father.”
+Before she could open her barrage of questions, Benedikt said, “I saw your father.”
 
 ## Chapter 55
 ### 3:00 PM, Friday 2nd May 2014, Vitebsk, Belarus
@@ -3219,19 +3179,29 @@ He unfolded a road map on the table and smoothed it flat with both hands. “Tom
 
 “Where will you really take him?”
 
-His finger moved along the road from Vitebsk, through Liozna, and stopped where the red line crossed a dotted one. “Here there is a blue sign, where Belarus ends. There is nothing else. Stephen will wait on this side of it at half past twelve tomorrow, Belarus time. I will drive your father to the sign, and the two of you will walk across to your brother.”
+“Here, to Vitebsk. Your brother can come for him at the hotel.”
+
+Sanchez shook her head. “Not the hotel. The driver works for you, and the warehouse is full of Kozlov’s friends. I don’t want him in any building the company can walk into.” She turned the map towards her and followed the road they had driven that morning, from Vitebsk through Liozna, to where the red line crossed a dotted one. “Here. The blue sign. There was nobody on that road this morning, from either side. You bring him to the sign, and he walks over it onto Belarusian soil, and Stephen is there on the other side. Stephen can drive it from Vitebsk in an hour.”
+
+Benedikt looked at the map for a long time. “And the time?”
+
+“Half past twelve, Belarus time. Half past one in Russia. That gives you an hour inside and an hour on the road, and Stephen will not have to stand there any longer than he must.”
+
+“And you will walk across with him,” Benedikt said.
 
 “And you?”
 
-“I will drive back and tell them he ran, or that my man lost him on the road. By then it will not matter what they believe.” He folded the map along its old creases. “Is that clear?”
+“I will drive back and tell them he ran, or that my man lost him on the road. By then it will not matter what they believe.” He folded the map along its old creases. “It is better than my plan.”
 
-It was clear, and it frightened her, because she could see that the plan had a place in it for her father, for Stephen and for her, and none for him. She said nothing of that. “Yes,” she said.
+It frightened her, because she could see that the plan had a place in it for her father, for Stephen and for her, and none for him. She said nothing of that.
 
-“Any questions?”
+“And if they say no?”
 
-“Only one. What if they say no?”
+“Then we come back to Vitebsk and think again. We will not fight our way out of that place.”
 
-“Then we come back to Vitebsk and think again. We will not fight our way out of that place.” He got up and went to the wardrobe, and when he came back he was holding something wrapped in a cloth. He unwrapped it and laid it on the map between them. It was a pistol, black and plain. “A Makarov, from the warehouse safe. This morning the guard searched the boot and looked under the seats. He did not touch your bag.”
+“Then I want something in my hands tomorrow,” she said. “I will not sit in that car with nothing.”
+
+He looked at her for a while. Then he got up and went to the wardrobe, and when he came back he was holding something wrapped in a cloth. He unwrapped it and laid it on the table between them. It was a pistol, black and plain. “A Makarov, from the warehouse safe. This morning the guard searched the boot and looked under the seats. He did not touch your bag.”
 
 He showed her how to hold it and put her thumb on the small lever at the back of the slide. “This is the safety. Up, it will not fire. Push it down, so that you see the red dot, and it will. There are eight rounds. You will not need it. But if something goes wrong tomorrow, you will not wait for me. Will you?”
 
@@ -3273,9 +3243,9 @@ This time his grin faded completely. After a long pause, Anatoly responded, “H
 
 “I believe your words, but as you must appreciate, I have to answer to my seniors. Here is a suggestion. Why do I not take him along for questioning, on the pretext of releasing him? My man will follow him secretly to see where he goes and whom he meets. If in the next month he does nothing alarming, the man is yours. You can keep him or let him go, your choice.”
 
-Anatoly looked uncomfortable. After some brooding he said, “I cannot do this without approval. I must speak to my seniors.”
+Anatoly looked uncomfortable. At last he said, “I cannot do this without approval. I must speak to my seniors.”
 
-For the first time that morning Benedikt hesitated, and Sanchez, who had learned to watch his face, knew that this was the one answer he had not wanted.
+Benedikt hesitated, and Sanchez, who had learned to watch his face, knew that this was the one answer he had not wanted.
 
 “By all means,” he said, and smiled.
 
@@ -3293,13 +3263,13 @@ Gennady Kozlov was on the telephone when Anatoly came in, and he did not stop fo
 
 Kozlov thought about that for a moment. He had kept the Scot alive for his own reasons, and none of them was TransPacific’s business. A man who had seen what the Scot had seen, and who had never told anyone, was worth more to Kozlov breathing than dead. That was insurance, and he did not give insurance away because a Dane asked politely.
 
-“I sense some foul play. He is up to something. I need to talk to Evan,” he declared, and without much ado he made the call.
+“I sense some foul play. He is up to something. I need to talk to Evan,” he declared, and he made the call.
 
 He rang three times. There was no answer.
 
 “Ask him to come tomorrow. Find some excuse. Make sure you appear genuine. I will speak to TransPacific tonight. Daniel is a closed chapter, and I have no intention of opening it for anyone.”
 
-Kozlov had a distinct way of communicating. When he spoke, others held back their opinions. Anatoly left the room with clear direction from his senior, and that was what mattered.
+Anatoly left the room with clear direction from his senior, and that was what mattered.
 
 * * *
 
@@ -3313,7 +3283,7 @@ Sanchez heard the door open again after fifteen minutes. Anatoly was wearing his
 
 “I would have loved to, but Mr Kozlov is not here until late in the evening. He wants to meet Daniel once before you take him away.”
 
-Benedikt concealed whatever he felt and, as in any other professional dealing, concluded, “Of course. I will see you tomorrow.”
+Benedikt concealed whatever he felt. “Of course. I will see you tomorrow.”
 
 He did not speak on the track through the pines, or when the guard lifted the barrier, or for several kilometres of the Rudnya road. He drove with his eyes on the empty road, lost in thought, and he seemed to have forgotten she was there.
 
@@ -3408,14 +3378,14 @@ Startled and ashamed, Stephen did as he was told. He gathered the pistols from t
 
 Benedikt reversed the car with urgency. The tyres screeched as he swung it round, and then he drove with full force back the way they had come. The blue sign went past her window. In the mirror she saw Maxwell standing in the middle of the road, and Stephen beside him, both of them growing small.
 
-Then the birches closed behind them, and they were in Russia, with six pistols that were not theirs in the boot, her father still behind a wire fence in the forest, and nobody left waiting for them on either side of the border.
+Then the birches closed behind them, and they were in Russia, with six pistols that were not theirs in the boot.
 
 ## Chapter 57
 ### 1:10 PM, Saturday 3rd May 2014, the Rudnya road, Russia
 
 Sanchez watched the birches go past on the Russian side and waited for her hands to stop shaking. The clock on the dashboard said ten past one. In Belarus it was ten past twelve, and Stephen would still be standing in the road beside the man who had broken his word. Though the immediate danger was behind them, their plan was a complete shambles. But despite all the hullabaloo they had been through, Benedikt looked almost happy. He kept glancing at her as if the ruse she had played on Maxwell were still in front of his eyes and he could not get enough of it. He wanted to say many things, she could see, but words defied him.
 
-“Thank you for your help,” he said at last. In the end those were the only words he could manage.
+“Thank you for your help,” he said at last.
 
 “Why do you love me so much? All I have given you is pain and trouble.” She gently squeezed his hand on the gear lever. “You risked your life and your job for me. And all I have offered you is despair.”
 
@@ -3423,7 +3393,7 @@ It was evident he had never heard her speak like that before. He was still searc
 
 “You are creating more problems than answers.” The clipped voice filled the car. “Kozlov tells me the Scot is alive. I was told that matter was closed in October. Now I hear you want to walk him out of Smolensk. Why did you volunteer for this? Worse, you took my name? Explain.”
 
-At other times Benedikt would have fought back with equal vigour, but today was different. In a composed tone he responded, “It was impromptu. I was there when Daniel was taken, Mr Slater, and I know how much of a risk he is to our business.”
+At other times Benedikt would have fought back with equal vigour, but today was different. He kept his voice level. “It was impromptu. I was there when Daniel was taken, Mr Slater, and I know how much of a risk he is to our business.”
 
 “It happened a long time ago. We trusted our partners to take care of it. You have an important assignment to finish, and you should focus on that instead of nosing around in trivial matters.”
 
@@ -3431,7 +3401,7 @@ This time the voice was louder, but it did not deter Benedikt. “If he had been
 
 Evan tried to interrupt, and this time Benedikt did not let him. “I have a plan. On the pretext of letting him go, I will follow him. If he turns, I will have him killed. If not, I will do as you suggest. The exposure we have with Daniel cannot be taken lightly.”
 
-There was a pause on the line. Whatever Evan thought of it, he did not argue. In a sceptical tone Evan said, “You have created a lot of unrest. Make sure you handle this one with perfection.” The line went dead.
+There was a pause on the line. Whatever Evan thought of it, he did not argue. Then Evan said, “You have created a lot of unrest. Make sure you handle this one with perfection.” The line went dead.
 
 Sanchez had heard every word. Before Benedikt could put forward any explanation, she said, “You don’t have to explain. I know why you said what you said.” She wore a pensive smile, and she turned her face away from him to the window.
 
@@ -3489,7 +3459,7 @@ Sanchez stared at him. For eleven days she had believed he had not seen it. She 
 
 “No. But he is the one who can use it.”
 
-She got up and went to the window. The yard below was dark, and the BMW stood by the fence with the six pistols still lying in the boot under a blanket, where Stephen had put them. She thought of her father on the pavement with the bakery bag, and of the man in the back seat who had watched and done nothing, and of the same man with a pistol at her temple that afternoon, saying he would always love her. She had come to this room ready to hate him. She found that she could not do it completely, and she did not know whether that was a weakness in her or the truth about him.
+She got up and went to the window. The yard below was dark, and the BMW stood by the fence with the six pistols still lying in the boot under a blanket, where Stephen had put them. She thought of her father on the pavement with the bakery bag, and of the man in the back seat who had watched and done nothing, and of the same man with a pistol at her temple that afternoon, saying he would always love her. She had come to this room ready to hate him. She found that she could not do it completely.
 
 “I do not know if I can forgive you,” she said at last.
 
@@ -3566,7 +3536,7 @@ It lasted no more than a second. His eyes went to Benedikt’s face and stayed t
 
 “Daniel,” Anatoly said in his careful English, “this gentleman will take you away from here. You are going on a journey.” He came round the desk and, to Benedikt’s surprise, took the Scot’s hand and held it a moment longer than business required. “Good luck to you.”
 
-Daniel looked at him and said nothing. Anatoly’s grin faltered for the first time, and then it was back.
+Daniel looked at him and said nothing. Anatoly’s grin faltered, and then it was back.
 
 They walked out together into the yard, Daniel a pace ahead. The young man from the door came with them as far as the steps and stopped there. The guard at the gate had come out of his hut. Two men were smoking by the workshop and had stopped talking. Benedikt felt every pair of eyes in that yard on his back, and he kept his pace even.
 
@@ -3602,14 +3572,14 @@ Benedikt kept his eyes on the road. There was an answer, and it was a long one, 
 
 “She will tell you,” he said.
 
-He was watchful, and for now all that mattered was Daniel’s safety. He looked in the mirror again. Behind them the road ran back through the birches to the compound, grey and wet and empty, and he could see nothing following them out of the forest. For a whole mile he watched that empty road, and he let himself believe it.
+He was watchful, and for now all that mattered was Daniel’s safety. He looked in the mirror again. Behind them the road ran back through the birches to the compound, grey and wet and empty, and he could see nothing following them out of the forest.
 
 ## Chapter 59
 ### 8:40 AM, Sunday 4th May 2014, the Rudnya road, Russia
 
 Sanchez had been standing at the edge of the lay-by for an hour, and she had looked at her watch more times than she could count. The birches dripped around her. The mist had begun to lift from the road but still lay in the hollows of the fields, white and low, and the pistols lay rolled in their blanket at her feet where Benedikt had left them. Twice a car had passed. Each time she had stepped back among the trees, and each time it had been nobody.
 
-At midnight, on the landing of the guesthouse at Rudnya, she had rung Stephen. She had refused to speak to Maxwell, but she had given Stephen her terms for him. She wanted two marked police cars at the blue sign from eight o’clock, Belarus time, on the Belarusian side and in plain view, and she wanted Major Zhuk there himself. Nobody was to cross towards them, and nobody was to touch Benedikt so long as he stayed in Russia. Ten minutes later Stephen had rung back with Maxwell’s answer, which was yes. She had heard Maxwell’s word before. She was trusting it once more because there was nobody else to trust.
+At midnight, on the landing of the guesthouse at Rudnya, she had rung Stephen. She had refused to speak to Maxwell, but she had given Stephen her terms for him. She wanted two marked police cars at the blue sign from eight o’clock, Belarus time, on the Belarusian side and in plain view, and she wanted Major Zhuk there himself. Nobody was to cross towards them, and nobody was to lay a hand on Benedikt, on either side of the sign. Ten minutes later Stephen had rung back with Maxwell’s answer, which was yes. She had heard Maxwell’s word before. She was trusting it once more because there was nobody else to trust.
 
 Sanchez spotted the car from a distance. She was numb, as if her feet were frozen to the ground, and despite the strong urge she failed to run towards the car to check her father’s presence.
 
@@ -3655,7 +3625,7 @@ Something that was almost a laugh came out of him. “Aye. You would.” He was 
 
 “And then you went to the police.”
 
-“On the Thursday I went to Iain MacCallum. I’d known him twenty years. I showed him the pictures on the camera, and he wrote it all down in his own hand at the desk in Girvan. Told me to bring him prints.” Her father’s voice did not change, but his hand tightened on hers. “Eight days later he told me Customs had looked. They were reproductions, and I was to leave it. He wouldn’t look at me either. That was when I knew.”
+“On the Thursday I went to Iain MacCallum. I’d known him twenty years. I showed him the pictures on the camera, and he wrote it all down in his own hand at the desk in Maybole. Told me to bring him prints.” Her father’s voice did not change, but his hand tightened on hers. “Eight days later he told me Customs had looked. They were reproductions, and I was to leave it. He wouldn’t look at me either. That was when I knew.”
 
 “He stopped looking at us too,” Sanchez said. “He stopped answering the phone. He retired last year.”
 
@@ -3719,7 +3689,7 @@ The silver car slowed.
 
 It slowed until it was barely moving, a hundred yards behind them, and then it stopped in the middle of the road. For a long minute nobody moved, not the Toyota, not the men in the road, not Benedikt, who had brought the car to a halt short of the sign with the engine running. Sanchez watched in the mirror with her heart in her mouth.
 
-Then the Toyota turned. It turned slowly across the road, in three movements, as if the driver wanted everyone to see that he was in no hurry, and it drove back the way it had come until the birches hid it.
+Then the Toyota turned. It turned slowly across the road, in three movements, as if the driver wanted everyone to see that he was in no hurry, and it drove back the way it had come until the road bent into the birches and hid it.
 
 Benedikt pushed the safety up and put the Makarov down. Sanchez looked at the white cars and the heavy man and the turning lights. For once, Maxwell had done exactly what she had asked of him.
 
@@ -3772,7 +3742,7 @@ They heard her go up the stairs, the creak of the fourth step, a door. Sanchez k
 
 “There is a little card, like for a camera. And a paper, folded.” Paper rustled. “It says Bay 7. It says garden statuary. And at the bottom it is signed.” She read it out slowly, in her careful voice with the Spanish still under it. “E. Slater.”
 
-“That’s the one,” her father said. “Put it back in the tin, Bel, and keep it by you. Don’t let anyone have it but Stephen, or a policeman he brings to the door. Not MacCallum. Nobody from Girvan.”
+“That’s the one,” her father said. “Put it back in the tin, Bel, and keep it by you. Don’t let anyone have it but Stephen, or a policeman he brings to the door. Not MacCallum. Nobody from Maybole.”
 
 “Daniel, what is this? What have you done?”
 
@@ -3824,7 +3794,7 @@ She put the phone in her pocket, walked back to the car and got into the back se
 
 Benedikt was halfway into the driver’s seat when he saw her. He froze where he was, as if lightning had struck him, and kept staring at her with astonishment.
 
-“After what you did on that road, the Russians will not spare you,” she said. “Maxwell has everything he needs to finish TransPacific. Let us get out of this place before the Russians come looking for us.”
+“After what you did on that road, the Russians will not spare you,” she said. “Maxwell has Evan. He does not have the route. You do, and you promised it to him. Without you, nothing I have ever touches Kozlov.” She did not look away from him. “I am not sending you back to them. Let us get out of this place before they come looking for us.”
 
 “Us?” Benedikt was still in a shocked state.
 
@@ -3834,4 +3804,6 @@ He looked at her without a word. Then he got in and closed the door. His hands w
 
 “Yes, and for a lifetime,” he said.
 
-Benedikt turned the car round on the empty road and drove back the way they had come. The rear window had misted over while they sat there, and the road behind them was a grey blur. Sanchez stretched her sleeve over her hand and wiped it clear. The blue sign was already small. Beyond it the road ran on between the birches and bent away out of sight, and the bend was empty.
+He drove slowly towards the sign. Beside the second police car Maxwell watched them come. Then he turned to the man in the grey coat and said something, and the heavy man stepped back onto the verge and, as they drew level, nodded them on. The blue sign went past her window, and the pistols in the wet grass, and the white cars with their turning lights. A little short of the bend where her father had gone, a track ran off to the north between the birches, and Benedikt slowed for it.
+
+The rear window had misted over while they sat there, and the road behind them was a grey blur. Sanchez stretched her sleeve over her hand and wiped it clear. The blue sign stood on its own at the verge. Beyond it the road ran back into Russia between the birches, straight and grey to the bend where the silver car had turned, and the bend was empty.
