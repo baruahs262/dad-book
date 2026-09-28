@@ -358,7 +358,7 @@ John Patterson was the one name in her father’s notebook the police had never 
 
 The flat was a sixteen-by-twelve-foot studio with an attached bathroom and a small kitchen area, and the room had just enough space to fit the mattress. It was a refuge for her until she could work out a plan to find him.
 
-She had come to Ayr in November, a few weeks after her eighteenth birthday, to stay with Aunt Nina, her father’s widowed sister. Aunt Nina made dresses in a narrow house in Newton-on-Ayr and never asked her why she had really come. Sanchez had started at Ayr College in January, and by February her evening jobs paid for a place of her own. Sanchez was her mother’s maiden name, given to her in the old Scottish way. Her father, whose grandfather had come to Ayrshire from Barga, used to joke that she had inherited the whole of the Mediterranean in two words.
+She had come to Ayr at the end of October, a week before her eighteenth birthday, to stay with Aunt Nina, her father’s widowed sister. Aunt Nina made dresses in a narrow house in Newton-on-Ayr and never asked her why she had really come. Sanchez had started at Ayr College in January, and by February her evening jobs paid for a place of her own. Sanchez was her mother’s maiden name, given to her in the old Scottish way. Her father, whose grandfather had come to Ayrshire from Barga, used to joke that she had inherited the whole of the Mediterranean in two words.
 
 Mum still rang from Girbin every Sunday evening, and every Sunday she asked, in the careful voice she had used since the day Sanchez left, when she was coming home. Mum had never wanted her to go to Ayr. Stephen, who had given up his place at Glasgow to work at a garage in Maybole and keep the house going, never asked at all.
 
@@ -652,7 +652,7 @@ It showed a tall man in a dark suit getting out of a car. He had dark brown hair
 
 “The man they clear the floor for.”
 
-“The same.” He turned the photograph so that it faced her squarely. “Every April the route’s partners play a private game of poker at the Øresund Palace Hotel in Helsingør, in Denmark. This year it is on Monday the 14th of April. There are five players, and each of them brings ten million pounds to the table. It looks like a game. It is where the partners settle the quarter. They win and lose to one another, and the money goes where it needs to go without a bank ever asking why. Benedikt plays TransPacific’s stake. He has sat at that table for the last three games, since long before he was given the route, and he has won two of them.”
+“The same.” He turned the photograph so that it faced her squarely. “Every April the route’s partners play a private game of poker at the Øresund Palace Hotel in Helsingør, in Denmark. This year it is on Monday the 14th of April. There are five players, and each of them brings ten million pounds to the table. It looks like a game. It is where the partners settle the year. They win and lose to one another, and the money goes where it needs to go without a bank ever asking why. Benedikt plays TransPacific’s stake. He has sat at that table for the last three games, since long before he was given the route, and he has won two of them.”
 
 “A head of security at a ten-million-pound table?”
 
@@ -862,7 +862,7 @@ On the way back to the apron he dialled another number. The phone kept ringing. 
 
 “Sorry, Chief. The phone was on silent, and since last night I…”
 
-Benedikt interrupted him. “I am not interested in your story, Francisco. I want you at Lisbon Airport now. Two people are on the TAP flight from Zurich, landing in the middle of the morning. Their details and photographs will be with you in fifteen minutes. You will grab them and take them to our usual place, and nobody is to harm them. There is one more. I will send you a picture of a man I believe is on the same plane. If you find him, get him as well. Any questions?”
+Benedikt interrupted him. “I am not interested in your story, Francisco. I want you at Lisbon Airport now. Two people are on the TAP flight from Zurich, landing in the middle of the morning. Their details and photographs will be with you in fifteen minutes. You will grab them and take them to our usual place, and nobody is to harm them. There is one more. There may be a man with them, in a dark windcheater. The cameras never had his face. If you see him, tell me. Any questions?”
 
 “No, Chief.”
 
@@ -1025,7 +1025,7 @@ He ended the call and lay back on the seat. Francisco turned the words over in h
 ## Chapter 19
 ### 12:15 PM, Thursday 17th April 2014, Cascais–Tires Aerodrome, Portugal
 
-Maxwell watched the landing from the furthest row of the car park at Tires, in the car the officer from the airport had left him at a petrol station short of the aerodrome. He saw Benedikt come down the steps, saw Francisco’s shoulders drop, and saw the van turn out of the gate. Another car chase lay ahead, and he would have to be careful. He had no powers in Portugal, and the warrant card in his pocket would impress nobody who looked at it closely. The officer had left his spare pistol in the glovebox, a Walther wrapped in a cloth, and had asked for it back unfired.
+Maxwell watched the landing from the furthest row of the car park at Tires, in the car Luís had left him at a petrol station short of the aerodrome. He saw Benedikt come down the steps, saw Francisco’s shoulders drop, and saw the van turn out of the gate. Another car chase lay ahead, and he would have to be careful. He had no powers in Portugal, and the warrant card in his pocket would impress nobody who looked at it closely. The officer had left his spare pistol in the glovebox, a Walther wrapped in a cloth, and had asked for it back unfired.
 
 Benedikt wasn’t in a hurry. Maxwell let a couple of cars come between them on the A5 and followed the van back towards the city. The van crossed the Tagus by the long red span of the 25 de Abril bridge and took the motorway south. After about fifty minutes, the van took the exit towards Vale da Amoreira. Soon they turned onto an unnamed street, or at least one with no visible name, and shortly after that, the van stopped in front of a run-down house. With tall grass and weeds all round it, it looked abandoned.
 
@@ -1094,7 +1094,7 @@ Sanchez sat on an empty wooden bench by the beach and gazed at the wide-open oce
 
 The van from Sete Rios had dropped them at the town square early in the afternoon, and she had made her famished brother take a taxi up to O Sítio, the old quarter on the cliff above the town, before she would let him near a restaurant. They had eaten a late lunch in a booth diagonally opposite the entrance, which gave her a view of everyone who came in, while a singer and two men with *guitarras portuguesas* played fado. Fado was meant to be sad, and the version played for the tourists was hardly that, but it was done well all the same.
 
-Behind her the streets were swarming with people. It was Holy Week, and half of Portugal seemed to have come to the sea for the Easter holiday. A few old women of the town, in the seven layered skirts that Nazaré was famous for, were still selling dried fish from their stalls along the promenade. Sanchez was relieved. Nothing had gone wrong since they left Lisbon, and she was sure that this time she had lost her pursuers. Across the street a man in a dark car sat reading a newspaper by the last of the light, and she did not look at him twice.
+Behind her the streets were swarming with people. It was Holy Week, and half of Portugal seemed to have come to the sea for the Easter holiday. A few old women of the town, in the seven layered skirts that Nazaré was famous for, were still selling dried fish from their stalls along the promenade. Sanchez was relieved. Nothing had gone wrong since they left Lisbon, and she was sure that this time she had lost her pursuers.
 
 Stephen’s close friend Jules lived near Nazaré. As part of an exchange programme, Jules had spent a semester in Ayr, and on one of his countryside walks he had come through Girbin, where he and Stephen had met and become good friends. Jules was a cartographer. It was Stephen’s idea to ask him to help with the map. Sanchez had doubted it at first, but Stephen convinced her that Jules could keep a secret.
 
@@ -1432,7 +1432,7 @@ Sanchez came round the sofa, took her by the arms and asked softly, “Are you h
 
 Sanchez went very still. Behind her she heard Stephen stop moving.
 
-“Two men came to this house last night,” Adriana continued. She spoke quickly now, as if she was afraid of being stopped. “They had your photograph. They said a girl would telephone me, and when she did, I must tell her to come. I must keep her here for the night and call their number. And if I did not, what happened to Rui on Good Friday would happen again.” Her eyes went to the ceiling, towards the room above where the photograph had hung. “Rui drew their maps. For six years he drew the maps for TransPacific, and that is why I can read them. When he saw what the maps were carrying, he told them he would stop. They found him at the foot of the cliffs at O Sítio. They said it was an accident. It was Good Friday. Five years ago today.”
+“Two men came to this house yesterday morning,” Adriana continued. She spoke quickly now, as if she was afraid of being stopped. “They had your photograph. They said a girl would telephone me, and when she did, I must tell her to come. I must keep her here for the night and call their number. And if I did not, what happened to Rui on Good Friday would happen again.” Her eyes went to the ceiling, towards the room above where the photograph had hung. “Rui drew their maps. For six years he drew the maps for TransPacific, and that is why I can read them. When he saw what the maps were carrying, he told them he would stop. They found him at the foot of the cliffs at O Sítio. They said it was an accident. It was Good Friday. Five years ago today.”
 
 Sanchez remembered the pale look that had crossed Adriana’s face upstairs, when she had come straight to the map without a word about anything else. She understood it now. Adriana had been dressed in black for the procession, and for Rui.
 
@@ -2125,11 +2125,11 @@ Sanchez’s face lost its colour. “The two shots behind the garage.”
 
 For a while nobody spoke. Stephen looked down at his cup.
 
-“So I cannot touch them,” Maxwell continued. “Not with anything I hold. The only evidence that will ever stand up against Evan Slater is evidence gathered by someone who is not me.”
+“So I cannot touch them,” Maxwell continued. “Not with anything I hold. A court will never take what I gathered, and after what I did to you, it may not take what you gather either. But it will tell honest police where to look and what to ask for. They will need one thing I never touched. A document from Slater’s own hand, or a witness who was there.”
 
-“By me,” she said.
+“My father,” she said.
 
-“By you.” He made himself go on. “And there is something else you must hear from me before you decide anything. When I put you through that year of training, I already knew about your father. I knew he was a missing driver who had once carried for TransPacific. I used it to hold you. You were eighteen. And when you sat in that café on the Low Green and told me how you meant to get into Benedikt’s suite, I said nothing. I should have stopped you, and I did not.”
+“If he is alive, yes.” He made himself go on. “And there is something else you must hear from me before you decide anything. When I put you through that year of training, I already knew about your father. I knew he was a missing driver who had once carried for TransPacific. I used it to hold you. You were eighteen. And when you sat in that café on the Low Green and told me how you meant to get into Benedikt’s suite, I said nothing. I should have stopped you, and I did not.”
 
 Sanchez did not respond. Her hands stayed folded on the table, but her knuckles had gone white.
 
@@ -2386,7 +2386,7 @@ Her shirt was clinging to her back. She told herself that his hand had gone out 
 
 *9:45 AM*
 
-Damian Holm had come aboard at nine with the escort team from the Tallinn office to see to the delegates’ security. He had nodded to her in the office and said nothing, and she had felt his eyes on her back as she went out.
+Damian Holm had come aboard at nine with the escort team, as he had every day since the ship came in to see to the delegates’ security. He had nodded to her in the office and said nothing, and she had felt his eyes on her back as she went out.
 
 Benedikt went through the file one final time. “I have to go down to receive the visitors. Would you mind taking the documents to the conference room?”
 
@@ -2479,14 +2479,14 @@ Last night he had asked a stranger on the phone where a Scottish driver had been
 
 When she let herself into her cabin, the suitcase was on the luggage rack where she had left it, but its zip faced the wall. She knelt and felt inside the lining. The pouch was still there, and nothing in it was missing.
 
-The guard at the end of the corridor told her that nobody had been up all evening, except Mr Holm, the chief’s security man from the Tallinn office, who had come back for a file at about eight and gone away again.
+The guard at the end of the corridor told her that nobody had been up all evening, except Mr Holm, the chief’s security man, who had stayed ashore to run things in Tallinn, who had come back for a file at about eight and gone away again.
 
 ## Chapter 41
 ### 4:00 AM, Wednesday 23rd April 2014, DAZZLE, Tallinn, Estonia
 
 Sanchez had only just drifted off when the ship’s whistle woke her. DAZZLE was leaving Tallinn on its day-long passage to Ventspils.
 
-She dressed quickly. She left the stick behind in the cabin. Her leg held, though she still walked with a slight limp. With her father’s photograph in her purse, she headed down towards the cargo decks.
+She dressed quickly. She left the stick behind in the cabin, against the doctor’s advice. Her leg held, though she still walked with a slight limp. With her father’s photograph in her purse, she headed down towards the cargo decks.
 
 On the stairs she met a young deckhand coming up with a coil of rope over his shoulder. She held out the photograph and asked him whether he had ever seen this man on the ship. The boy barely looked at it. He shrugged, said something in Estonian and carried on up the stairs without breaking his step.
 
@@ -2624,7 +2624,7 @@ Benedikt went out on deck. The lights of Ventspils were spreading along the dark
 
 He would find out where the partners had taken the Scottish driver, and he would do it in a way that could never lead Ayr back to her. If that meant sending her home first, he would send her home.
 
-His phone rang. It was Damian, from the office in Tallinn.
+His phone rang. It was Damian, who had stayed behind in Tallinn to run the shore end.
 
 “Chief, Kask on your cargo door says she was down there at four this morning. I asked him to keep an eye out.” Damian was breathing hard, as he did when he was worried. “And the AV frame in the conference room was sitting off its hinge after the meeting, as if something had been wedged under it. I had a look round her cabin as well. I found nothing. That doesn’t mean there was nothing.”
 
@@ -3415,7 +3415,7 @@ Sanchez held very still. She had known this was coming since Vitebsk, since befo
 
 For a long time he said nothing. Outside a dog barked somewhere in the town and stopped.
 
-“Girbin,” he said. “The fourteenth of February, 2010. When you said the bakery, in Tallinn, I knew. I did not want to know, so I asked you for a photograph, and then I knew.” He spoke slowly, like a man reading out a statement. “I had been with TransPacific three weeks. My chief was a Dane called Carsten Mørch. He took me with him because he said I should see how things were done. There was Mørch, a driver, one of Kozlov’s Russians and me. We waited in a black Range Rover by the square, facing the bakery, with the engine running. When your father came out with his bag they took him by the arms and put him in the car beside me. I sat in the back seat. I did not touch him. I did nothing. In the car he told them that if he did not come home, his pictures would go to the police and the papers. They took the camera from his van and found no card in it, and they believed him. That is why he is alive. It was not because of anything I did.”
+“Girbin,” he said. “The fourteenth of February, 2010. When you said the bakery, in Tallinn, I knew. I did not want to know, so I asked you for a photograph, and then I knew.” He spoke slowly, like a man reading out a statement. “I had been with TransPacific three weeks. My chief was a Dane called Carsten Mørch. He took me with him because he said I should see how things were done. There was Mørch, a driver, one of Kozlov’s Russians and me. We waited in a black Range Rover by the square, facing the bakery, with the engine running. When your father came out with his bag they took him by the arms and put him in the car beside me. I sat in the back seat. I did not touch him. I did nothing. In the car he told them that if he did not come home, his pictures would go to the police and the papers. Afterwards they took the camera from his van outside the house and found no card in it, and they believed him. That is why he is alive. It was not because of anything I did.”
 
 “Did you know his name?”
 

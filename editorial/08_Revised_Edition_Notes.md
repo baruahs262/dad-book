@@ -11,7 +11,7 @@ You asked what the book would look like if every structural change in `02_Struct
 This is that version. It is a demonstration, not a replacement.
 
 - **It is still your book.** It keeps your plot, your cast, your set pieces, your ending and, wherever a scene survives, your sentences. Most of the text is your edited prose carried across and trimmed.
-- **Some of it is not yours.** About 13,000 words are new scenes and bridges that my team wrote in your voice, so the structural plan could be carried out. Section 4 lists all of them. Each one is a proposal. The strongest use of this version is to read it, decide which changes you want, and then write those scenes again yourself. An agent is buying *your* voice.
+- **Some of it is not yours.** About 12,000 words are new scenes and bridges that my team wrote in your voice, so the structural plan could be carried out. Section 4 lists all of them. Each one is a proposal. The strongest use of this version is to read it, decide which changes you want, and then write those scenes again yourself. An agent is buying *your* voice.
 - **It has no tracked changes.** A structural revision moves, merges and rewrites whole chapters, so a redline against the original would be unreadable. Use Section 3 (the chapter map) to compare it with the original or with the line-edited version.
 - **The other two versions are unchanged.** The tracked and clean line edits still stand on their own. This third version builds on the clean line edit, with every line-edit change accepted.
 
@@ -189,9 +189,39 @@ The full reasoning, the calendar and every plant and its payoff are in `09_Story
 
 ## 6. Verdict on the revised version
 
-See Section 7 of this file, which gives a separate cold read of the revised book by an acquisitions reader who had not seen your original.
+Three cold reads were done, each by a reader who had seen neither your original nor any of our notes. After each of the first two, the problems found were fixed and the whole book was proofread again.
 
----
+| | Opening | Structure | Character | Prose | Dialogue | Plausibility | Ending | Market fit |
+|---|---|---|---|---|---|---|---|---|
+| Read 1 | 7 | 5 | 5 | 4 | 4 | 4 | 5 | 5 |
+| Read 2 | 7 | 5 | 5 | 5 | 4 | 4 | 6 | 5 |
+| Read 3 (final) | 7 | 5 | 6 | 6 | 5 | 5 | 7 | 5 |
+
+**The final reader's verdict:**
+- **The query and the first three chapters:** "yes, request the full."
+- **The full manuscript:** "not an offer yet". They would send a revise-and-resubmit letter and offer representation if the revision lands.
+- **The strongest praise:** "The plotting is unusually disciplined for a debut", the plants pay off, and "the last four chapters really move."
+- **Their market read:**
+  - With a Big Five imprint as it stands, the chance is low, because "the voice does not stand out".
+  - With a digital-first list such as Bookouture, Canelo, Boldwood, Hera or Avon, the chance is good now, pitched as romantic suspense.
+  - Their comparable titles are *The Little Drummer Girl*, *Red Sparrow*, Daniel Silva's antiquities-smuggling novels and *Codename Villanelle*.
+
+**My honest summary.** The revised edition is a far stronger book than the draft. It is ready to query. It is not yet the book that wins a Big Five auction. What stands between the two is work only you should do, because it is about your voice and your characters:
+
+1. **Put the villain on the page.** Evan Slater is heard only on the telephone. Give him two or three scenes of his own, and let Damian's suspicion reach Ayr and start a clock during the voyage.
+2. **Write the Rudnya night in full (Chapter 57).** This is the night she hears the worst from Benedikt and still chooses him. It is summarised now. It is the emotional hinge of the ending, and it should be your best scene.
+3. **Fix the dialogue.** Keep Benedikt and the Russians formal, but let the Scots talk like Scots. Contractions, fewer labelled emotions and fewer verbal tics ("Look,", "Is that clear?").
+4. **Speed up Part Two.** Either cut the Ayr flashback to three or four chapters, or run it as a strand alternating with the chase.
+5. **Aim for about 85,000 words.** The book is now about 72,500, which is lean for the genre. Most of the length should come back through points 1 and 2 and the fallout: MacCallum, Patterson, Adriana, Luís's family and Maxwell's own reckoning.
+
+The final report also lists some plausibility points. Most have been fixed:
+- Maxwell's legal reasoning now rests on the waybill and her father as a witness.
+- Her recovery and the stick are consistent.
+- The small continuity slips are corrected.
+
+Still open:
+- She beats armed men in Chapters 24–25. It should read as trickery rather than strength.
+- Zhuk's police hand over their pistols in Chapter 56.
 
 ## 7. Caveats
 

@@ -1,3 +1,5 @@
+> **Note:** this is the working bible the revision was built from. Later rounds changed a few details, and where the chapters differ, the chapters are right. Examples: the Zurich clock in Chapter 15; Maxwell flying commercial via Frankfurt, with no jet from Drake; Benedikt taking over the route in summer 2013; the insured value of €34 million.
+
 # THE TELL — Story Bible
 
 *Single source of truth for the structural revision. Every chapter writer follows this document. Where the author's text (rev/src/ch00–ch85) conflicts with it, **the bible wins**; the conflict is listed so the writer knows what to change. Chapter references: "ch 12" = author's original chapter; "N12" = new chapter in the 60-chapter revised order (Structure Plan §2).*
