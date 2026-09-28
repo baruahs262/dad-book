@@ -16,6 +16,8 @@ Here is what is in the package:
 |---|---|
 | `The-Last-Scintilla-EDITED-tracked.docx` | Your manuscript with every change shown as a Word tracked change (red lines), plus margin comments. Accept or reject each one. |
 | `The-Last-Scintilla-EDITED-clean.docx` | The same file with every change accepted, for reading straight through. |
+| `The-Tell-REVISED-EDITION.docx` | **Third version.** The structural revision: every change in the structure plan actually made, in 60 chapters, with new scenes written in your voice. A demonstration for you to rewrite, not a replacement. See `08`. |
+| `book-revised.md` | The revised edition as plain Markdown. |
 | `Redline-Preview.html` | A read-only preview of all changes and comments that opens in any web browser, including on a phone. |
 | `book-edited.md` | The edited text as plain Markdown, matching your `book.md`. |
 | `editorial/01_Editorial_Letter.md` | This letter: the verdict, strengths, problems, flow, names, title and next steps. |
@@ -25,6 +27,8 @@ Here is what is in the package:
 | `editorial/05_Continuity_and_Timeline.md` | The corrected timeline for all 85 chapters, and every fact fix. |
 | `editorial/06_House_Style_Sheet.md` | The spelling, punctuation and dialogue rules I applied, for use in your revision. |
 | `editorial/07_Notes_and_Assumptions.md` | Every judgement call I made on your behalf, and why. |
+| `editorial/08_Revised_Edition_Notes.md` | What the revised edition is, the chapter map, every invented scene and fact, and caveats. |
+| `editorial/09_Story_Bible_Revised.md` | The working story bible the revised edition was built from. |
 | `editorial/appendix/` | The detailed reader reports and style studies behind the edit, for reference. |
 
 ---
